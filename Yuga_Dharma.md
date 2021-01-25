@@ -1,6 +1,6 @@
-# Yuga Dharma - Japa
+# Yuga Dharma and Yoga’s
 
-All the yogas are interlinked and inseparable, as by performing one yoga one or more yoga may be perfomed directly or indirectly. And when ones reaches the higher stages of yoga, it all turns into bhakti, as one who knows Krishna(God) knows everything. And the only way to know and understand Krishna in full is through bhakti.
+All the yogas are interlinked and inseparable, as by performing one yoga one or more yoga’s may be performed directly or indirectly. And when one reaches the higher stages of yoga, it all turns into bhakti, as one who knows Krishna(God) knows everything. And the only way to know and understand Krishna in full is through bhakti.
 
 *The Supreme Lord said: Now listen, O Arjun, how, with the mind attached exclusively to me, and surrendering to me through the practice of bhakti yog, you can know me completely, free from doubt.
 I shall now reveal unto you fully this knowledge and wisdom, knowing which nothing else remains to be known in this world.
@@ -8,12 +8,20 @@ Amongst thousands of persons, hardly one strives for perfection; and amongst tho
 
 *Only by loving devotion to me does one come to know who I am in truth. Then, having come to know me, my devotee enters into full consciousness of me.* - Bhagavad Gita 18.55
 
-It also good to note that we have different samskars therefor different attraction to different yoga's and ishta's, if we are progressing well under the guidance of a bonafide guru, we should stick to their process as there are many different ways of realization the absolute truth. 
+Why do I say when one reaches the higher stages of yoga everything is bhakti? Because when studies sashtra many people think that its Gyaan yoga. But anything becomes Bhakti Yoga as soon as it is connected to Bhagavaan. For example: Vedanta is there to describe Bhagavaan, Dhyaan is there to meditate on Bhagavaan, Paramatma and even meditating on the chakras and raising Kundalini is Bhakti as Kundalini is Shakti ! But even different Dyaan techniques such as scanning the body, observing the mind and sensations, focusing on the breath can also be bhakti as its being used to rewaken our Citt (internal embedded all knowing knowledge from the atma) by entering into different levels of samadhi. This also applies for kriya, pranayama, mudra, asana ,etc.
 
-But it is clearly stated in the Vedic Literature that Bhakti/Japa Yoga is the most effective and recommend process for self and God realization in  Kali Yuga, thats why japa is very well known as the Yuga Dharma. Here are some quotes to prove this statement.
+“One must know the meaning of the word jñāna in its appropriate context. If jñāna was not needed for bhakti, then Kṛṣṇa’s instruction to Uddhava would be meaningless: “Being endowed with jñāna and vijñāna, worship Me with bhakti-bhāva”—jñāna-vijñāna-sampanno bhaja māṁ bhakti-bhāvataḥ (SB 11.19.5). 
+It is a fact that bhakti can grant all jñāna, but to execute bhakti, one needs jñāna.” - Satya Narayana Das Babaji
+
+Ref: [Is studying scriptures Bhakti or Gyaan?](https://www.jiva.org/studying-sastra-jnana-or-bhakti/)
+
+We have different samskars therefore we have different attractions to different yoga's, and we progress better in some yogas and less in others. So we should follow and trust these samskars that we have, as there are many different ways of realizing the absolute truth. And one cannot practise all the yogas. So one should seek out a bonafide spiritual master that aligns with our samskars and preferences if you are the fortunate few that is able to perform different types of yoga’s.
+
+But it is clearly stated in the Vedic Literature that Bhakti/Japa Yoga is the most effective and recommended process for self and God realization in Kali Yuga, that's why japa is called the Yuga Dharma. 
 
 
 # Sastra:
+#### Here is some evidence from the Vedic Scriptures:
 
 - **Kali Santrana Upanishad.** (The upanisad which helps you to clear all obstacles in Kali Yuga)
 
@@ -57,16 +65,17 @@ kalau nasty eva nasty eva, nasty eva gatir anyatha.
 
 - **Sri Caitanya-caritamrta**
 
-kali-kale nama-rupe krsna-avatara
-nama baite haya sarva-jagat-nistara
 *In this Age of Kali, the Holy Name of the Lord, the Hare Krishna Maha-mantra, is the  incarnation of Lord Krishna.  Simply by chanting the Holy Name, one associates with the  Lord directly.  Anyone who does this is certainly delivered.* - Adi-lila 17.22-26
+
+*Religiosity, economic development, sense gratification and liberation are known as the four goals of life, but before love of Godhead, the fifth and highest goal, these appear as insignificant as straw in the street.* - Ādi 7.84
+
+*The conclusion of all revealed scriptures is that one should awaken his dormant love of Godhead. You are greatly fortunate to have already done so.* - Ādi 7.87
+
+*When one actually develops love of Godhead, he naturally sometimes cries, sometimes laughs, sometimes chants and sometimes runs here and there just like a madman.* - Ādi 7.88
 
 
 - **Caitanya Bhagavan**
  
-ataeva kali-yuga nama-yajna sara
-ara kona dharma kaile nahi haya para
-
 *Therefore the essence of all religious principles in the Age of Kali is the sacrifice of  chanting the Hare Krishna Maha-mantra...* - Adi-khanda 14.1.39
 
 
@@ -130,14 +139,14 @@ pujyate bhagavan harih
 *Whatever is achieved by meditation in Satya-yuga, by the performance of yajna in  Treta-yuga or by the worship of Krishna's lotus feet in Dvapara-yuga is obtained very  easily in the Age of Kali simply by chanting the Hare Krishna Maha-mantra.* - Uttara-khanda 72.25
 
 
-# Sadhu:
-Here are some statements from fully self realized souls and avatars.
+# Sadhu’s:
+#### Here are some statements from fully self realized souls and avatars.
 
 - **Swami Shivananda**
   - Japa Japa Japa the only way to wipe out your all sufferings and sins.
   - In this Iron Age, Japa Yoga is an easy way for attaining God-realisation
 
-https://gurudevsivananda.blogspot.com/2010/11/japa-yoga-by-gurudev-swami-sivananda.html
+[japa-yoga-swami-sivandanda](https://gurudevsivananda.blogspot.com/2010/11/japa-yoga-by-gurudev-swami-sivananda.html)
 
 
 - **Jagadguru Shree Kripaluji Maharaj**
@@ -145,11 +154,12 @@ https://gurudevsivananda.blogspot.com/2010/11/japa-yoga-by-gurudev-swami-sivanan
 *It is impossible to attain God by practicing austerities, yoga, japa or by jnana and renunciation. He can only be attained by exclusive devotion.*
 
 
-- **SwamiNarayan**
+- **SwamiNarayan (Avatar)**
 
-A very recent incarnation of Narayana. https://en.wikipedia.org/wiki/Swaminarayan
+[Wikipedia](https://en.wikipedia.org/wiki/Swaminarayan)
 
 "While on his journey, Nilkanth Varni mastered Astanga yoga (eightfold yoga) in a span of nine months under the guidance of an aged yogic master named Gopal Yogi."
+
 ![SwamiNarayan!](https://kids.baps.org/storytime/photo/gopalyogi.jpg)
 ![SwamiNarayan Ashtanga!](https://i.pinimg.com/originals/18/49/a4/1849a4149c326cd3833af8733b2b65bb.jpg)
 
@@ -223,5 +233,15 @@ Enshrine the Lotus Feet of your Lord and Master within your heart.
 Thus this human life, so difficult to obtain, shall be redeemed.*
 — Guru Granth Sahib, page 189
 
+- **Sri Krishna Chaitanya Mahaprabu (Avatar)**
+[Wikipeda](https://en.wikipedia.org/wiki/Chaitanya_Mahaprabhu)
 
-Sri Ramanuja Acarja, Nimbark Acarya, Vallabha Acharya, Madhav Acarya, Sri Krsna Caitanya, etc all recommend and bhakti and japa as the most effective yoga for Kali Yuga as well As this is all the teachings in the vedas.
+When Sri Krisnha Chaitanya was 17 He mastered Gyan, Sastra, Sanskrit Grammer and Rules and Logic and started a school teaching his students Sanskrit, Logic and Vedanta. From this age onwards his name and fame spread and many great scholars came to debate him. There was one scholar who was even blessed by Sri Sarawati Devi, that she would speak through him thus never making a slight fault in any of his arguements and answers. The scholar started debatting with Sri Krisha Chaitanya, and Sri Krishna Started poiting out flaws in his grammer and conclusions. Bewilderd by making a mistake, he prayed to Sarawati Devi to ask what fault he did that she withdrew her blessings. Saraswati Devi then appeared in his dreams and answered him saying that she got shy as her worshipable Lord Sri Krishna, and thus revealed to him Sri Krishna Caitaynas true identity. He then fell at Sri Krishna Chaitanyas lotus feet apologizing and glorifying him. Sri Krishna Chaitanya quickly become famous as the top scholor in West Bengal and India. 
+
+At the age of 24, he took up the order of Sannyasa and left his wife and home town. All of his associates where shocked to see his change of mood from a scholar to a devotee. From this day onwards he gave up studying and debating and dedicated his life into spreading the Holy Names. He appeared like a mad man, he was drunk on Love of Godhead, Once while passing through Benares some of sannyasi's saw him, and thought that he was a great shame to the sannyas order, they thought he is a great fool and a sentimentilist, wasting his time dancing and chanting and not engaging in studying the Vedas. Not knowing that He is actually the Supreme Personility of Godhead or atleast that He is famous great linguist and Vedanta scholar. At the request of one of Sri Krsnas Chaitanya Mahaprabus disciple, Lord Chaitanya for the first time accepted their invatation and joined the sannyasi's at a gathering. There the sannyasi's confronted him asking him why is not engaged like the other Sannyasis sitting and studing the Vedas and what is this chanting, dancing, crying, lauging and other funny activities that he is doing ? By Sri Krishna Chaitanyas causeless mercy He illumined all the sannyasi's present about the real teachings and essence of the Vedas, being mind blown and extremly pleased with Chaitanyas presentation they all become his followers and started chanting and dancing like mad men as well !
+
+
+![Sri Krsna Caitanya!](https://lh3.googleusercontent.com/proxy/LhS9TbImiv5aeYNQzKTOo5gfHAhY8VJoXmUM7TUWpwNXZCFBbosMYQZPZmY3UwoYMVHmsWQsHyyi9ps7V7JbYxWDlr0_KuP9tpJgIYCjEP3ri1xuaqnFLLYS4IB5aM3MrdiY2RbM2_-GzEqvnD-3tzNKbdXjkWZ-y6R1MA)
+
+
+Sri Ramanuja Acarja, Nimbark Acarya, Vallabha Acharya, Madhav Acarya, etc all recommend and bhakti and japa as the most effective yoga for Kali Yuga as well As this is all the teachings in the Vedic scriptures.
