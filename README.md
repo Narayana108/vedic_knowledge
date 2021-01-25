@@ -1,5 +1,5 @@
 # Vedic_Teachings
-Teachings form the Vedas and great Saints
+Teachings from Guru, Sadhu and Sashtra
 
 ## Index
 - [Yuga Dharma - Japa](Yuga_Dharma.md)
