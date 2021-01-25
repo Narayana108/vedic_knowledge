@@ -1,34 +1,19 @@
 # Yuga Dharma - Japa
 
-All the yogas are interlinked, and by performing one yoga one indirectly performs other yoga's. And when ones reaches the higher stages of yoga, it all turns into bhakti, as one who knows Krishna(God) knows everything. And the only way to know and understand Krishna in full is through bhakti.
+All the yogas are interlinked and inseparable, as by performing one yoga one or more yoga may be perfomed directly or indirectly. And when ones reaches the higher stages of yoga, it all turns into bhakti, as one who knows Krishna(God) knows everything. And the only way to know and understand Krishna in full is through bhakti.
 
 *The Supreme Lord said: Now listen, O Arjun, how, with the mind attached exclusively to me, and surrendering to me through the practice of bhakti yog, you can know me completely, free from doubt.
 I shall now reveal unto you fully this knowledge and wisdom, knowing which nothing else remains to be known in this world.
-Amongst thousands of persons, hardly one strives for perfection; and amongst those who have achieved perfection, hardly one knows me in truth.* - Bhagavad Gita 7.3
+Amongst thousands of persons, hardly one strives for perfection; and amongst those who have achieved perfection, hardly one knows me in truth.* - Bhagavad Gita 7.1 - 7.3
 
+*Only by loving devotion to me does one come to know who I am in truth. Then, having come to know me, my devotee enters into full consciousness of me.* - Bhagavad Gita 18.55
 
-It is clearly stated in the Vedic Literature that Bhakti/Japa Yoga is the most effective and recommend process for self and God realization in  Kali Yuga, thats why japa is very well known as the Yuga Dharma.
+It also good to note that we have different samskars therefor different attraction to different yoga's and ishta's, if we are progressing well under the guidance of a bonafide guru, we should stick to their process as there are many different ways of realization the absolute truth. 
+
+But it is clearly stated in the Vedic Literature that Bhakti/Japa Yoga is the most effective and recommend process for self and God realization in  Kali Yuga, thats why japa is very well known as the Yuga Dharma. Here are some quotes to prove this statement.
 
 
 # Sastra:
-
-- **Vishnu Purana**
-
-*The fruit of penance, of continence, of silent prayer, and the like, practised in the Krita age for ten years, in the Treta for one year, in the Dwápara for a month, is obtained in the Kali age in a day and night: therefore did I exclaim "Excellent, excellent, is the Kali age!" That reward which a man obtains in the Krita by abstract meditation, in the Treta by sacrifice, in the Dwápara by adoration, he receives in the Kali by merely reciting the name of Keshava.*
-
-
-- **Srimad Bhagavatam**
-
-*People in Satya-yuga are peaceful, nonenvious, friendly to every creature and steady in all situations. They worship the Supreme Personality by austere meditation and by internal and external sense control....
-In Tretā-yuga, those members of human society who are fixed in religiosity and are sincerely interested in achieving the Absolute Truth worship Lord Hari, who contains within Himself all the demigods. The Lord is worshiped by the rituals of sacrifice taught in the three Vedas....
-In Dvāpara-yuga men who desire to know the Supreme Personality of Godhead, who is the supreme enjoyer, worship Him in the mood of honoring a great king, following the prescriptions of both the Vedas and tantras....
-Those who are actually advanced in knowledge are able to appreciate the essential value of this Age of Kali. Such enlightened persons worship Kali-yuga because in this fallen age all perfection of life can easily be achieved by the performance of saṅkīrtana [chanting together]*.
-
-
-- **Srimad Bhagavatam**
-
-*In the Kali-yuga, objects, places and even individual personalities are all polluted. The almighty Personality of Godhead, however, can remove all such contamination from the life of one who fixes the Lord within his mind. If a person hears about, glorifies, meditates upon, worships or simply offers great respect to the Supreme Lord, who is situated within the heart, the Lord will remove from his mind the contamination accumulated during many thousands of lifetimes.... Whatever result was obtained in Satya-yuga by meditating on Viṣṇu, in Tretā-yuga by performing sacrifices, and in Dvāpara-yuga by serving the Lord’s lotus feet can be obtained in Kali-yuga simply by chanting [Hari].*
-
 
 - **Kali Santrana Upanishad.** (The upanisad which helps you to clear all obstacles in Kali Yuga)
 
@@ -62,7 +47,32 @@ Meaning:
 KulArnava Tantram,Chapter 15,Verse 3.
 
 
+- **Brihan-naradiya Purana**
+
+harer nama harer nama, harer namaiva kevalam;
+kalau nasty eva nasty eva, nasty eva gatir anyatha.
+
+*For spiritual progress in this Age of Kali which is full of quarrel and hypocrisy, there is  no alternative, there is no alternative, there is no alternative to the Holy Name, the Holy  Name, the Holy Name of the Lord.* - 38.126
+
+
+- **Sri Caitanya-caritamrta**
+
+kali-kale nama-rupe krsna-avatara
+nama baite haya sarva-jagat-nistara
+*In this Age of Kali, the Holy Name of the Lord, the Hare Krishna Maha-mantra, is the  incarnation of Lord Krishna.  Simply by chanting the Holy Name, one associates with the  Lord directly.  Anyone who does this is certainly delivered.* - Adi-lila 17.22-26
+
+
+- **Caitanya Bhagavan**
+ 
+ataeva kali-yuga nama-yajna sara
+ara kona dharma kaile nahi haya para
+
+*Therefore the essence of all religious principles in the Age of Kali is the sacrifice of  chanting the Hare Krishna Maha-mantra...* - Adi-khanda 14.1.39
+
+
 - **Bhagavad Gita** 
+ 
+*Of sacrifices I am the chanting of My Holy Names.* - 10.52
 
 *Whoever knows Me as the Supreme Personality of Godhead, without doubting, is the knower of everything. He therefore engages himself in full devotional service to Me, O son of Bharata.*- 15.19
 
@@ -71,11 +81,57 @@ KulArnava Tantram,Chapter 15,Verse 3.
 *And of all yogīs, he who always abides in Me with great faith, worshiping Me in transcendental loving service, is most intimately united with Me in yoga and is the highest of all.* - 6.42
 
 
+- **Srimad Bhagavatam**
+
+*People in Satya-yuga are peaceful, nonenvious, friendly to every creature and steady in all situations. They worship the Supreme Personality by austere meditation and by internal and external sense control....
+In Tretā-yuga, those members of human society who are fixed in religiosity and are sincerely interested in achieving the Absolute Truth worship Lord Hari, who contains within Himself all the demigods. The Lord is worshiped by the rituals of sacrifice taught in the three Vedas....
+In Dvāpara-yuga men who desire to know the Supreme Personality of Godhead, who is the supreme enjoyer, worship Him in the mood of honoring a great king, following the prescriptions of both the Vedas and tantras....
+Those who are actually advanced in knowledge are able to appreciate the essential value of this Age of Kali. Such enlightened persons worship Kali-yuga because in this fallen age all perfection of life can easily be achieved by the performance of saṅkīrtana [chanting together]*. - 11.5.22,36
+
+puṁsāṁ kali-kṛtān doṣān
+dravya-deśātma-sambhavān
+sarvān harati citta-stho
+bhagavān puruṣottamaḥ
+
+*In the Kali-yuga, objects, places and even individual personalities are all polluted. The almighty Personality of Godhead, however, can remove all such contamination from the life of one who fixes the Lord within his mind. If a person hears about, glorifies, meditates upon, worships or simply offers great respect to the Supreme Lord, who is situated within the heart, the Lord will remove from his mind the contamination accumulated during many thousands of lifetimes.... Whatever result was obtained in Satya-yuga by meditating on Viṣṇu, in Tretā-yuga by performing sacrifices, and in Dvāpara-yuga by serving the Lord’s lotus feet can be obtained in Kali-yuga simply by chanting [Hari].* - 12.3.45
+
+kaler doṣa-nidhe rājann
+asti hy eko mahān guṇaḥ
+kīrtanād eva kṛṣṇasya
+mukta-saṅgaḥ paraṁ vrajet
+
+*My dear King, although Kali-yuga is an ocean of faults, there is still one good quality about this age: Simply by chanting the Hare Kṛṣṇa mahā-mantra, one can become free from material bondage and be promoted to the transcendental kingdom.* - 12.3.51
+
+kṛte yad dhyāyato viṣṇuṁ
+tretāyāṁ yajato makhaiḥ
+dvāpare paricaryāyāṁ
+kalau tad dhari-kīrtanāt
+
+*Whatever result was obtained in Satya-yuga by meditating on Viṣṇu, in Tretā-yuga by performing sacrifices, and in Dvāpara-yuga by serving the Lord’s lotus feet can be obtained in Kali-yuga simply by chanting the Hare Kṛṣṇa mahā-mantra.* - 12.3.52
 
 
-There are still many many more vedic literature that can quoted, but I shall stop here for now and move onto what Great self realzied souls and avatars say:
+- **Vishnu Purana**
+
+dhyayan krte yajan yajnais
+tretayam dvapare 'rcayan
+yad apnoti tad apnoti
+kalau sankirtya kesavam
+
+*The fruit of penance, of continence, of silent prayer, and the like, practised in the Krita age for ten years, in the Treta for one year, in the Dwápara for a month, is obtained in the Kali age in a day and night: therefore did I exclaim "Excellent, excellent, is the Kali age!" That reward which a man obtains in the Krita by abstract meditation, in the Treta by sacrifice, in the Dwápara by adoration, he receives in the Kali by merely reciting the name of Keshava.*
+
+
+- **Padma Purana**
+
+dvapariyair janair visnuh
+pancaratrais tu kevalaih
+kalau tu nama-matrena
+pujyate bhagavan harih
+ 
+*Whatever is achieved by meditation in Satya-yuga, by the performance of yajna in  Treta-yuga or by the worship of Krishna's lotus feet in Dvapara-yuga is obtained very  easily in the Age of Kali simply by chanting the Hare Krishna Maha-mantra.* - Uttara-khanda 72.25
+
 
 # Sadhu:
+Here are some statements from fully self realized souls and avatars.
 
 - **Swami Shivananda**
   - Japa Japa Japa the only way to wipe out your all sufferings and sins.
@@ -86,15 +142,16 @@ https://gurudevsivananda.blogspot.com/2010/11/japa-yoga-by-gurudev-swami-sivanan
 
 - **Jagadguru Shree Kripaluji Maharaj**
 
-*"It is impossible to attain God by practicing austerities, yoga, japa or by jnana and renunciation. He can only be attained by exclusive devotion."*
+*It is impossible to attain God by practicing austerities, yoga, japa or by jnana and renunciation. He can only be attained by exclusive devotion.*
 
 
 - **SwamiNarayan**
 
-A very recent incarnation of Narayana. I highly recommend you research him ! https://en.wikipedia.org/wiki/Swaminarayan
+A very recent incarnation of Narayana. https://en.wikipedia.org/wiki/Swaminarayan
 
 "While on his journey, Nilkanth Varni mastered Astanga yoga (eightfold yoga) in a span of nine months under the guidance of an aged yogic master named Gopal Yogi."
-https://kids.baps.org/storytime/photo/gopalyogi.jpg
+![SwamiNarayan!](https://kids.baps.org/storytime/photo/gopalyogi.jpg)
+![SwamiNarayan Ashtanga!](https://i.pinimg.com/originals/18/49/a4/1849a4149c326cd3833af8733b2b65bb.jpg)
 
 ^ That happend before he was 18, But still he only taught Japa and bhakti even to his most advanced disciples and they all reached maha samadi and prem.
 
