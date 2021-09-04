@@ -1,8 +1,8 @@
 # Yuga Dharma and Yoga’s
 
-All the yogas are interlinked and inseparable, as by performing one yoga, one or more yoga’s may be performed directly or indirectly. And when one reaches the higher stages of yoga, it all turns into bhakti though externally people might see it as different. How can it all be Bhakti ? First we need to understand: *Hari Om Tat Sat* - There is nothing in existence other than Lord Hari. We are viewing Him and exploring Him alone in different forms and aspects. 
+All the different yoga's are interlinked and inseparable, as by performing one yoga, one or more yoga’s may be performed directly or indirectly. And when one reaches the higher stages of yoga, it all turns into bhakti though externally people might see it as different. How can it all be Bhakti ? First we need to understand: *Hari Om Tat Sat* - There is nothing in existence other than Lord Hari. We are viewing Him and exploring Him alone in different forms and aspects. 
 
-But there is His higher and lower forms, When we know His Higher forms such as Krishna one automatically knows everything. And the only way to know and understand Krishna in full, is through bhakti.
+But there is His higher and lower forms, when we know His higher forms such as Krishna one automatically knows everything. And the only way to know and understand Krishna in full, is through bhakti.
 
 *The Supreme Lord said: Now listen, O Arjun, how, with the mind attached exclusively to me, and surrendering to me through the practice of bhakti yog, you can know me completely, free from doubt.
 I shall now reveal unto you fully this knowledge and wisdom, knowing which nothing else remains to be known in this world.

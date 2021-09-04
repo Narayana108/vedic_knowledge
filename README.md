@@ -2,4 +2,5 @@
 Teachings from Guru, Sadhu and Sastra
 
 ## Index
-- [Yuga Dharma and Yogas](Yuga_Dharma_and_Yogas.md)
+- [yuga dharma and yogas](yuga_dharma_and_yogas.md)
+-  [an introduction to nimbark sampraday](an_introduction_to_nimbark_sampraday.md)
