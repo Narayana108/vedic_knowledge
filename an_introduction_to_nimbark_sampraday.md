@@ -3,8 +3,8 @@
 ## History
 The Nimbark sampraday is one of the oldest existing sampradays. The Sampraday originates from Śrī Hansa Bhagavān to Sri Sankadi bhagwan (one of the Four Kumaras), who passed it to Sri Narada Muni; and then on to Sri Nimbarka Acharya ji. Nimbark Acarayaji was born at the end of dwarpa yuga making the sampraday more than 5000 years old. 
 
-[Sri Nimbarkacaryaji](images/nimbark/nimbarka.jpg)
-[Srimad Hansa Bhagavaan](./images/nimbark/srimad_hamsa_bhagavan.jpg)
+![Sri Nimbarkacaryaji](images/nimbark/nimbarka.jpg)
+![Srimad Hansa Bhagavaan](./images/nimbark/srimad_hamsa_bhagavan.jpg)
 
 ## Philosophy
 Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva is simultaneously one and different to Ishvara and prakriti.
