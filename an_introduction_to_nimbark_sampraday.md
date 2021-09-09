@@ -1,20 +1,72 @@
+
 # An introduction to Nimbark Sampraday
 
+**Jai Jai Sri Shyaama Shyaam **
+*My sincere dandavat pranaams to all the devotees. *
+
+Though the Nimbark sampraday is a very large and well established, they have thousands of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts about the  sampraday from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
+
 ## History
-The Nimbark sampraday is one of the oldest existing sampradays. The Sampraday originates from Śrī Hansa Bhagavān to Sri Sankadi bhagwan (one of the Four Kumaras), who passed it to Sri Narada Muni; and then on to Sri Nimbarka Acharya ji. Nimbark Acarayaji was born at the end of dwarpa yuga making the sampraday more than 5000 years old. 
+Due the the destruction of Mathura and Vrindavan in the 13th Century and 14th Century, some of the history and important scriptures of the Nimbark sampraday has been lost.
+
+The Nimbark sampraday is one of the oldest existing sampradays. The Sampraday originates from Śrī Hansa Bhagavān to Sri Sankadi bhagwan (one of the Four Kumaras), who passed it to Sri Narada Muni; and then on to Sri Nimbarka Acharya ji. 
+
+According to tradition, Narada Muni initiated Śrī Nimbārkācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
+
+Sri Nimbarkacharya appeared in different ages. It is mentioned in Acharya Charitra, Naimisha Khanda, Vamana Purana and Bhavishya Purana Once the devotees prayed to the Lord to protect them and the religious path. Then the Lord told His Sudershan Chakra,
+```
+sudarshana! mahabaho! koti-surya-sama-prabhah
+ajnana timirandhanam vishnor margam pradarshaya
+```
+_"O supreme invincible one! Powerful like millions of suns. O My supreme devotee. Show the path of Vishnu, the devotional path, to these people who are suffering in darkness due to ignorance."_
+
+There are some scholars that claim that Sri Nimbark Acarya Ji appeared around the same time or before the appearance of Shankaracharya ji, but we do not accept this. As per the oral tradition and different Puranic evidence's, one main sources being the Bhavishya Purana, it is clearly stated that Nimbark Acarya incarnated more than 5000 years ago and explains more details about the divine appearance of Sri Nimbark Acaryaji.
+
+Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today 5094 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared.
+
 
 ![Sri Nimbarkacaryaji](images/nimbark/nimbarka.jpg)
 ![Srimad Hansa Bhagavaan](./images/nimbark/srimad_hamsa_bhagavan.jpg)
 
 ## Philosophy
-Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva is simultaneously one and different to Ishvara and prakriti.
 
-The sampraday has exclusive worship to Radha Krisha in Vrindavan only.  There is no superiority between Radha and Krishna, both are Bhagavaan(God). They simultaneously one and separate, dvaita advaita. Krishna is the praana of Radha, and Radha is the praana of Krishna. 
+All Sanatana Dharma philosophies accept that the Vedic texts _(Saṁhitās, Brāhmaṇas, Āraṇyakas_ and _Upaniṣhads)_ are divine revelation. The _Upaniṣhads_ present myriad doctrines on a variety of topics; however, they do not give a unified position on the understanding of a few crucial principles, chief of which is the identity and relationship of the three major ontological categories: Brahman (Supreme soul), Jīva (individual soul) and Jagat (creation). Are the Supreme Soul and individual soul one and the same, or are they different? Is the universe an illusion and therefore not really existing, or does it exist but is just temporary? Depending on which part of a certain _Upaniṣhad_ one peruses, divergent answers may be found. 
 
-In the Nimbark sampraday Radha and Krishna are married and the worship of Radha and Krishna has been going on since the start of the sampraday.
+Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter). 
+
+ Thus Sri Nimbark Acaryaji successfully demonstrated that all of these variegated scriptures within Vedanta are, in fact, harmonious.
+
+Śhrī Nimbārka simply taught that if the _Veda_ is divine revelation, then none of it is lower knowledge; all of it should be accepted as equally teaching the supreme knowledge. This all-embracing concept of Svābhāvika-Bhedābheda (natural simultaneous difference and oneness) expounded by Śhrī Nimbārka could account for the concurrent existence of different types of statements. This requires an intellectual openness and all-embracing outlook.
+
+Despite this Nimbark Sampraday does have a particular mood and method of worship. They strictly follow the teachings of Srimad Bhagavatam, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Hari that they worship is Radha and Krishna. 
+
+```
+radhaya sahito devo madhvo vaishavottamaih
+archyo bandyashcha dhyeyashcha shrinimbarkapadanugaih
+- Shri Nimbarka-Sudha  
+```
+
+_"For the followers of Shri Nimbarkacharya the only worshipable Shri Radha along with Madhava, Shri Shri Radha Rasik Bihari is the only deity which should be worshipped, which should be prayed to and upon which we should meditate. This is the only goal which is universally accepted by all. In the end, offering respectful obeisances to the lotus feet of all the Devacharyas of the guru parampara and known and unknown Vaishnavas we pray at their holy feet."_
+
+Sri Nimbark Acaryaji worshipped Radha along with Krishna in Sakhi Bhava Upasana method of worship and has been maintained through the parampara up until this very present day. There is no superiority between Radha and Krishna, both are Bhagavaan(God). They are simultaneously one and separate, dvaita advaita. 
+
+```
+ange tu vaame vrishabhaanujaam mudaa viraajamaanaam anuruupasaubhagaam. sakhiisahasraih parisevitaam sadaa smarema deviim sakalestakaamadaam. 
+- Vedanta Kamadhenu Dashashloki, Verse 6, By Sri Nimbark Acaryaji
+```
+
+*The left portion of the body of the Supreme Lord is Shri Radha, seated blissfully, as beautiful as the Lord Himself; who is served by thousands of gopis: we meditate on the Supreme Goddess, the fulfiller of all desires.*
+
+```
+radhaamkrsnasvaroopaam vai, krishnam raadhaasvarupinam; kalaatmaanam nikunjastham gururoopam sadaa bhaje - Maha vani
+```
+
+_I ceaselessly praise Radha who is none other than Krishna, and Sri Krishna who is none other than Radha, whose unity is represented by the Kaamabeeja and who are forever resident in Nikunja Goloka Vrndavana._
+
+A lot of this may sound familiar as most people are already acquainted with the famous Hare Krishna movement or Gaudiya Vaishnavism. As one can see there are striking similarities between the Gaudiya's and Nimbarki's. They share many identical concepts such bhakti, tattva's and the worship of Radha Krishna. Therefor a lot of this knowledge is transferable between the sampradays. Fun fact, one notable difference between Gaudiya and Nimbark sampraday is that in Nimbark leela, Radha and Krishna are married to each other.
 
 ## Practice/Sadhana
-The Nimbark sampraday firmly believes that naam japa is the best method to achieve moksha. This is the main practice. 
+Archana, karma yoga, different types of dhyaana, gyaana, etc are all included in Nimbark sampraday. But the tradition has strong emphasis on naam japa and this is the main sadhana.
 
  They chant the `Yugal maha mantra` or `Radha Krishna maha mantra`: 
  
@@ -29,42 +81,74 @@ This used to be a secret mantra in the sampraday, but it has now been wide sprea
 
 When the Nimbarki's perform dhyaan they meditate between their eye brows, focused on their bindi meditating on Radha Krishna, the yog pit (a mandala where Radha and Krishna and the sakhi's live) and or lila. 
 
-The name, form, qualities and past times of Sri Sri Radha Krishna are seen to be non different from each other. So the Dhyaan, Naam Jaap and Maha Vani Gayaan(Chanting) is all the same.
+The name, form, qualities and past times of Sri Sri Radha Krishna are seen to be non different from each other. Therefor Dhyaan, Naam Jaap, Srimad Bhagavatam and Maha Vani Gayaan(Chanting) are all the same.
 
 ## Moksha
-A state of awareness of full identity with the divine couple Radha Krishna.
+There are different types of moksha available as stated in the Vedic literature, such as merging with Brahman, residing in Vaikuntha with Sriman Narayan, Nrsinga or in Ayodha with Sri Ramachandra assuming varies eternal forms.
 
-The type of moksha that they desire is to become the servants of Sri Yugal Sarkar(Radha Krishna) and to serve and reside with them in their eternal abode `Sri Vrindavan Dham`. 
+But the type of moksha that they desired in the Nimbark sampraday is to become the servant of Sri Yugal Sarkar(Radha Krishna) to and reside with them in their eternal abode in `Sri Vrindavan Dham`. 
 
+It is a state of awareness of full identity with the divine couple Sri Sri Radha Krishna.
 
 ## Saints
-One of the most important Acarya's in the sampraday is `Sri Hari Vyas Deva acharyaji` who appeared some where around the 13th or 14th century. He wrote the most confidential and revered book in the sampraday called `Maha Vani`, which deals with the intimate past times of Radha Krishna in Vrindavan Dham. But even to this day not all due to its confidential nature not all Nimbarki's read this book as one needs qualification to deal with its high subject matter or some of the Nimbark tyagi's choose to focus more on tapasya and naam jap.
+One of the most important Acarya's in the sampraday is `Sri Hari Vyas Deva Acharyaji` who appeared some where around the 14th century, though there is not clear evidence for the exact date. He wrote a highly confidential and extremely important book in the sampraday called `Maha Vani`, which deals with the intimate past times of Radha Krishna in Vrindavan Dham. But even to this day not all due to its confidential nature not all Nimbarki's read this book as one needs qualification to deal with its high subject matter or some Nimbark tyagi's  choose to rather focus more on tapasya, naam jap and dhyaan.
 
 Other very well know saints that come from the Nimbark sampraday is `Jayadev Goswami` who wrote `Gita Govinda` and `Swami Haridas` who founded the `Haridas sampraday`.
 
 `Swami Sri Sribhatta`, the elder god-brother of Jayadeva composed the `Yugala Shataka` around 1294 CE for the Dhrupada style of musical presentation like Jayadeva, however unlike Jayadeva who composed his work in Sanskrit, Swami Shribhatta’s compositions are in Vraja Bhasha, a Hindi vernacular which was understood by all inhabitants of Vraja.
 
 ## Branches
-Within the Nimbark sampraday their is a recent branch who's members receive the title `Kathia baba` in their name's. The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (coupin) worn by them which indicated their renunciation of all bodily pleasures.
+Within the Nimbark sampraday their is a recent branch who's members receive the title `Kathia baba` in their name's. The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (kaupin) worn by them which indicated their renunciation of all bodily pleasures.
+  
+The Kathia Baba's originally come from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
 
-The Kathia Baba's originally come from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. Though the chanting and worship Radha Krishna's name and form is still the centre of the branch and the tilak they wear is still the same. They normally have long dreadlocks and wear a thick wooden belt.
-
-The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909).
+The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909). The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday.
 
 ## Tilak
 The tilak of the Nimbark sampraday can mean two or more things:
 1. The yellow line represents a mandir, and the bindi represents a murti of Sri Sri Radha Krishna.
 
-2. The yellow outline represents Sriji's(Radha's) charan and the black bindi between the eye brows represents Krishna or the yog pit, a mandala where Radha and Krishna and the Sahecharis live. 
+2. The yellow outline represents Sriji's(Radha's) charan(Lotus feet) and the black bindi between the eye brows represents Krishna or the yog pit, a mandala where Radha and Krishna and the Sahecharis live. 
 
 ## Nimbark Tyagi's
-The renunciations in nimbark sampraday are known as tyagi's. They do not wear safforn, they where a white dhoti with no pleat.
+The renunciates in Nimbark sampraday are known as tyagi's. They do not wear safforn, they where a white dhoti with no pleat and white shol.
 
 ## Scripture's
-I will write more on this as their are many different scriptures, but the main scriptures that are focused on are: `Bhagavad Gita`, `Srimad Bhagavatam`, `Bhakta Maal` and the rasiks recite `Maha Vani`.
+Their are many different scriptures, but the main scriptures that are focused on are: `Bhagavad Gita`, `Srimad Bhagavatam`, `Bhakta Maal` and the rasiks recite `Maha Vani`.
+
+There are some scholarly Nimbark ashrams that Study Sanskrit, Vedanta and Nimbarkji's scriptures. But those ashrams are few.
+
+Nimbark Acarya has written the following scriptures and commentaries:
+```
+Vedānta Pārijāta Saurabha– Commentary on the Brahma Sutras
+Sadācāra Prakāśa– Commentary on the Bhagavad-Gītā
+Rahasya Ṣoḍaśī- Śrī Gopāla Mantra explained
+Prapanna Kalpa Vallī- Śrī Mukuṇḍa Mantra explained
+Prapatti Cintāmaṇi – On Supreme surrender
+Prātaḥ Smaraṇa Stotram
+Daśa Śloki or Kāmadhenu– Ten Verses
+Saviśeṣa Nirviśeṣa
+Śrī Kṛṣṇa Stavam
+```
  
-## The end
-The Nimbark sampraday though very large and open to all has always remained a hidden sampraday, since the time of Nimbark acarya ji up to the present day. It holds many secrets or untold stories that I feel need to be shared more as it can add so much more richness to the beautiful ocean of Sanatana Dharma.
+## Resources:
+[The life and teachings of Shri Nimbarka Acharya](https://www.hinduismtoday.com/educational-resources/the-life-teachings-of-one-of-indias-great-luminaries-shri-nimbarka/)
+
+http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm
+
+https://hi-in.facebook.com/TheGloriousBangioNimbarSamprodoyAshram/posts/shri-radhejai-jagat-guru-shri-nimbarka-achraya-juthe-universal-tradition-of-the-/2460105870717820/
+
+https://www.dlshq.org/saints/nimbarka/
+
+http://www.sanatansociety.org/yoga_and_meditation/nimbarka_philosophy.htm
+
+https://vedanta.redzambala.com/traditions/nimbarka-sampradaya-nimbarka.html
 
 
-**Radhe Radhe**
+## The End
+
+```
+vanchha kalpatarubhyashcha kripa sindhubhya eva cha
+patitanam pavanebhyo vaishnavebhyo namo namah
+```
+
