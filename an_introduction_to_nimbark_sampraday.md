@@ -57,7 +57,7 @@ _- Maha vani_
 
 _"I ceaselessly praise Radha who is none other than Krishna, and Sri Krishna who is none other than Radha, whose unity is represented by the Kaamabeeja and who are forever resident in Nikunja Goloka Vrndavana."_
 
-A lot of this may sound familiar as most people are already acquainted with the famous Hare Krishna movement or Gaudiya Vaishnavism. As one can see there are striking similarities between the Gaudiya's and Nimbarki's. They share many identical concepts such bhakti, tattva's and the worship of Radha Krishna. Therefor a lot of this knowledge is transferable between the sampradays. And ofcourse there are some differences one being that in Nimbark leela, Radha and Krishna are married to each other.
+A lot of this may sound familiar as most people are already acquainted with the famous Hare Krishna movement or Gaudiya Vaishnavism. As one can see there are striking similarities between the Gaudiya's and Nimbarki's. They share many identical concepts such dvaita-advaita, bhakti, tattva's and the worship of Radha Krishna. Therefor a lot of this knowledge is transferable between the sampradays. And ofcourse there are differences as well, but the differences in my opinion are minor, one example is that in Nimbark leela, Radha and Krishna are married to each other.
 
 ## Practice/Sadhana
 Archana, karma yoga, different types of dhyaana, gyaana, etc are all included in Nimbark sampraday. But the tradition has strong emphasis on naam japa and this is the main sadhana.
