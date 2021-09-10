@@ -23,7 +23,7 @@ There are some scholars that claim that Sri Nimbark Acarya Ji appeared around th
 Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today 5094 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared.
 
 
-![Sri Nimbarkacaryaji](images/nimbark/nimbarka.jpg | width=100)
+![Sri Nimbarkacaryaji](images/nimbark/nimbarka.jpg | =100x100)
 ![Srimad Hansa Bhagavaan](./images/nimbark/srimad_hamsa_bhagavan.jpg)
 
 ## Philosophy
