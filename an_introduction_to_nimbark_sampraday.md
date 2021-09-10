@@ -43,7 +43,7 @@ _radhaya sahito devo madhvo vaishavottamaih
 archyo bandyashcha dhyeyashcha shrinimbarkapadanugaih_
 _- Shri Nimbarka-Sudha_
 
-_"For the followers of Shri Nimbarkacharya the only worshipable Shri Radha along with Madhava, Shri Shri Radha Rasik Bihari is the only deity which should be worshipped, which should be prayed to and upon which we should meditate. This is the only goal which is universally accepted by all. In the end, offering respectful obeisances to the lotus feet of all the Devacharyas of the guru parampara and known and unknown Vaishnavas we pray at their holy feet."_
+_"For the followers of Shri Nimbarkacharya they should only worship Shri Radha along with Madhava, Shri Shri Radha Rasik Bihari is the only deity which should be worshipped, which should be prayed to and upon which we should meditate. This is the only goal which is universally accepted by all. In the end, offering respectful obeisances to the lotus feet of all the Devacharyas of the guru parampara and known and unknown Vaishnavas we pray at their holy feet."_
 
 Sri Nimbark Acaryaji worshipped Radha along with Krishna in Sakhi Bhava Upasana method of worship and has been maintained through the parampara up until this very present day. There is no superiority between Radha and Krishna, both are Bhagavaan(God). They are simultaneously one and separate, dvaita advaita. 
 
