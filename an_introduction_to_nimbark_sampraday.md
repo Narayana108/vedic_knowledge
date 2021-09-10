@@ -1,4 +1,3 @@
-
 # An introduction to Nimbark Sampraday
 
 <img src="images/nimbark/nimbarka-sampradaya-tilak.png" width=40% height=40%>
