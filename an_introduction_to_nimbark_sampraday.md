@@ -17,10 +17,10 @@ The Nimbark sampraday is one of the most ancient sampradays. The Sampraday origi
 According to tradition, Narada Muni initiated Śrī Nimbārkācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
 
 Sri Nimbarkacharya appeared in different ages. It is mentioned in Acharya Charitra, Naimisha Khanda, Vamana Purana and Bhavishya Purana Once the devotees prayed to the Lord to protect them and the religious path. Then the Lord told His Sudershan Chakra,
-```
-sudarshana! mahabaho! koti-surya-sama-prabhah
-ajnana timirandhanam vishnor margam pradarshaya
-```
+
+_sudarshana! mahabaho! koti-surya-sama-prabhah
+ajnana timirandhanam vishnor margam pradarshaya_
+
 _"O supreme invincible one! Powerful like millions of suns. O My supreme devotee. Show the path of Vishnu, the devotional path, to these people who are suffering in darkness due to ignorance."_
 
 There are some scholars that claim that Sri Nimbark Acarya Ji appeared around the same time or before the appearance of Shankaracharya ji, but we do not accept this. As per the oral tradition and different Puranic evidence's, one main sources being the Bhavishya Purana, it is clearly stated that Nimbark Acarya incarnated more than 5000 years ago and explains more details about the divine appearance of Sri Nimbark Acaryaji.
@@ -39,28 +39,23 @@ Here is a detailed explanation of `Dvaita Advaita`: [Nimbark philosophy](http://
 
 They follow the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Hari that they worship is Radha and Krishna. 
 
-```
-radhaya sahito devo madhvo vaishavottamaih
-archyo bandyashcha dhyeyashcha shrinimbarkapadanugaih
-- Shri Nimbarka-Sudha  
-```
+_radhaya sahito devo madhvo vaishavottamaih
+archyo bandyashcha dhyeyashcha shrinimbarkapadanugaih_
+_- Shri Nimbarka-Sudha_
 
 _"For the followers of Shri Nimbarkacharya the only worshipable Shri Radha along with Madhava, Shri Shri Radha Rasik Bihari is the only deity which should be worshipped, which should be prayed to and upon which we should meditate. This is the only goal which is universally accepted by all. In the end, offering respectful obeisances to the lotus feet of all the Devacharyas of the guru parampara and known and unknown Vaishnavas we pray at their holy feet."_
 
 Sri Nimbark Acaryaji worshipped Radha along with Krishna in Sakhi Bhava Upasana method of worship and has been maintained through the parampara up until this very present day. There is no superiority between Radha and Krishna, both are Bhagavaan(God). They are simultaneously one and separate, dvaita advaita. 
 
-```
-ange tu vaame vrishabhaanujaam mudaa viraajamaanaam anuruupasaubhagaam. sakhiisahasraih parisevitaam sadaa smarema deviim sakalestakaamadaam. 
-- Vedanta Kamadhenu Dashashloki, Verse 6, By Sri Nimbark Acaryaji
-```
+_ange tu vaame vrishabhaanujaam mudaa viraajamaanaam anuruupasaubhagaam. sakhiisahasraih parisevitaam sadaa smarema deviim sakalestakaamadaam._
+_- Vedanta Kamadhenu Dashashloki, Verse 6, By Sri Nimbark Acaryaji_
 
-*The left portion of the body of the Supreme Lord is Shri Radha, seated blissfully, as beautiful as the Lord Himself; who is served by thousands of gopis: we meditate on the Supreme Goddess, the fulfiller of all desires.*
+*"The left portion of the body of the Supreme Lord is Shri Radha, seated blissfully, as beautiful as the Lord Himself; who is served by thousands of gopis: we meditate on the Supreme Goddess, the fulfiller of all desires."*
 
-```
-radhaamkrsnasvaroopaam vai, krishnam raadhaasvarupinam; kalaatmaanam nikunjastham gururoopam sadaa bhaje - Maha vani
-```
+_radhaamkrsnasvaroopaam vai, krishnam raadhaasvarupinam; kalaatmaanam nikunjastham gururoopam sadaa bhaje_ 
+_- Maha vani_
 
-_I ceaselessly praise Radha who is none other than Krishna, and Sri Krishna who is none other than Radha, whose unity is represented by the Kaamabeeja and who are forever resident in Nikunja Goloka Vrndavana._
+_"I ceaselessly praise Radha who is none other than Krishna, and Sri Krishna who is none other than Radha, whose unity is represented by the Kaamabeeja and who are forever resident in Nikunja Goloka Vrndavana."_
 
 A lot of this may sound familiar as most people are already acquainted with the famous Hare Krishna movement or Gaudiya Vaishnavism. As one can see there are striking similarities between the Gaudiya's and Nimbarki's. They share many identical concepts such bhakti, tattva's and the worship of Radha Krishna. Therefor a lot of this knowledge is transferable between the sampradays. And ofcourse there are some differences one being that in Nimbark leela, Radha and Krishna are married to each other.
 
