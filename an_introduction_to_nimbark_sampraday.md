@@ -1,9 +1,9 @@
 
 # An introduction to Nimbark Sampraday
 
-**Jai Jai Sri Shyaama Shyaam**
-
 <img src="images/nimbark/nimbarka-sampradaya-tilak.png" width=40% height=40%>
+
+**Jai Jai Sri Shyaama Shyaam**
 
 Though the Nimbark sampraday is a very large and well established, having thousands of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
 
@@ -95,14 +95,14 @@ Other very well know saints that come from the Nimbark sampraday is `Jayadev Gos
 
 `Swami Sri Sribhatta`, the elder god-brother of Jayadeva composed the `Yugala Shataka` around 1294 CE for the Dhrupada style of musical presentation like Jayadeva, however unlike Jayadeva who composed his work in Sanskrit, Swami Shribhatta’s compositions are in Vraja Bhasha, a Hindi vernacular which was understood by all inhabitants of Vraja.
 
-## Branches
+## Kathia Baba Nimbarki's
 <img src="images/nimbark/nasik-kumbh-mela-pilgrimage-kathia-baba.jpg" width=20% height=20%>
 
 Within the Nimbark sampraday their is a recent branch who's members receive the title `Kathia baba` in their name's. The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (kaupin) worn by them which indicated their renunciation of all bodily pleasures.
   
 The Kathia Baba's originally come from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
 
-The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909). The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday.
+The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909). The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday. And all of the Acharyas from the different ashrams in the Nimbark sampraday work harmoniously together.
 
 ## Tilak
 <img src="images/nimbark/sriji_maharaji.jpg" width=30% height=30%>
