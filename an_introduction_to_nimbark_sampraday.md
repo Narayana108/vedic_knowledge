@@ -105,7 +105,7 @@ The first Kathia Baba that come down from the Himalayas and started spreading th
 
 The tilak of the Nimbark sampraday can mean two or more things:
 
-1. The yellow line represents a mandir, and the bindi represents a murti of Sri Sri Radha Krishna.
+1. The yellow line represents a mandir, and the bindi represents the murti of Sri Sri Radha Krishna.
 
 2. The yellow outline represents Sriji's(Radha's) charan(Lotus feet) and the black bindi between the eye brows represents Krishna or the yog pit, a mandala where Radha and Krishna and the Sahecharis live. 
 
