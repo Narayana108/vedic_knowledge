@@ -1,8 +1,8 @@
 # An introduction to Nimbark Sampraday
 
-**Jai Jai Sri Shyaama Shyaam **
+**Jai Jai Sri Shyaama Shyaam**
 
-<img src="images/nimbark/Nimbarka-7-.jpg" width=60% height=60%>
+<img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
 
 Though the Nimbark sampraday is a very large and well established, they have thousands of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts about the  sampraday from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
 
@@ -28,7 +28,7 @@ Then Sudarshana Chakra decided to take his incarnation by the order of the Lord.
 
 ## Philosophy
 
-<img src="images/nimbark/Nimbarka-1-_1.jpg" width=30% height=30%>
+<img src="images/nimbark/Nimbarka-1-_1.jpg" width=80% height=80%>
 Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
 
 They follow the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Hari that they worship is Radha and Krishna. 
