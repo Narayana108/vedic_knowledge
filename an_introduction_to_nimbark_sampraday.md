@@ -86,7 +86,7 @@ The type of moksha that is desired in the Nimbark sampraday is to attain an eter
 It is a state of awareness of full identity with the divine couple Sri Sri Radha Krishna.
 
 ## Saints
-<img src="images/nimbark/Nimbark_saint.jpg" width=20% height=20%>
+<img src="images/nimbark/Nimbark_saint.jpg" width=25% height=25%>
 
 One of the most important Acarya's in the sampraday is `Sri Hari Vyas Deva Acharyaji` who appeared some where around the 14th century. He wrote a highly confidential and extremely important book in the sampraday called `Maha Vani`, which deals with the intimate past times of Radha Krishna in Vrindavan Dham. But due to its confidential nature not all Nimbarki's read this book, as one needs qualification to deal with its high subject matter or some Nimbark tyagi's choose to rather focus more on tapasya, naam jap and dhyaan.
 
