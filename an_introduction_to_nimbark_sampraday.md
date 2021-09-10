@@ -2,6 +2,9 @@
 
 **Jai Jai Sri Shyaama Shyaam **
 
+<img src="images/nimbark/Nimbarka_Symbol.jpg" width=60% height=60%>
+<img src="images/nimbark/nimbarka-parampara.jpg" width=60% height=60%>
+
 Though the Nimbark sampraday is a very large and well established, they have thousands of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts about the  sampraday from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
 
 ## History
@@ -23,8 +26,6 @@ There are some scholars that claim that Sri Nimbark Acarya Ji appeared around th
 Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today 5094 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared.
 
 
-<img src="images/nimbark/nimbarka-parampara.jpg" width=30% height=30%>
-<img src="images/nimbark/srimad_hamsa_bhagavan.jpg" width=30% height=30%>
 
 ## Philosophy
 
