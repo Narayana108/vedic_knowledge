@@ -1,10 +1,11 @@
+
 # An introduction to Nimbark Sampraday
 
 **Jai Jai Sri Shyaama Shyaam**
 
 <img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
 
-Though the Nimbark sampraday is a very large and well established, they have thousands of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts about the  sampraday from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
+Though the Nimbark sampraday is a very large and well established, having thousands of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
 
 ## History
 Due the the destruction of Mathura and Vrindavan in the 13th Century and 14th Century, some of the history and important scriptures of the Nimbark sampraday has been lost.
@@ -22,7 +23,7 @@ _"O supreme invincible one! Powerful like millions of suns. O My supreme devotee
 
 There are some scholars that claim that Sri Nimbark Acarya Ji appeared around the same time or before the appearance of Shankaracharya ji, but we do not accept this. As per the oral tradition and different Puranic evidence's, one main sources being the Bhavishya Purana, it is clearly stated that Nimbark Acarya incarnated more than 5000 years ago and explains more details about the divine appearance of Sri Nimbark Acaryaji.
 
-Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today 5094 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared.
+_Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today 5094 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared._
 
 
 
@@ -30,6 +31,10 @@ Then Sudarshana Chakra decided to take his incarnation by the order of the Lord.
 
 <img src="images/nimbark/Nimbarka-1-_1.jpg" width=80% height=80%>
 Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
+
+Here is a detailed explanation of `Dvaita Advaita`
+[Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
+
 
 They follow the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Hari that they worship is Radha and Krishna. 
 
@@ -69,8 +74,6 @@ Radhe Shyaam Radhe Shyaam
 Shyaam Shyaam Radhe Radhe*
 
 This used to be a secret mantra in the sampraday, but it has now been wide spread and chanted by all.
-
-Sri Nimbark Acaryaji as well as Sri Hari Vyas Dev Acaryaji have also given very special importance to the name and worship of Radharani. Therefor you will find many Nimbarki's also chanting `Radhe Radhe` as well.
 
 One of the type of Dhyaana that the Nimbarki's perform dhyaan they meditate focusing between their eyebrows or on their bindi, meditating on Radha Krishna, the yog pit (a mandala where Radha and Krishna and the sakhi's live) and or lila. 
 
@@ -143,4 +146,3 @@ Saviśeṣa Nirviśeṣa
 vanchha kalpatarubhyashcha kripa sindhubhya eva cha
 patitanam pavanebhyo vaishnavebhyo namo namah
 ```
-
