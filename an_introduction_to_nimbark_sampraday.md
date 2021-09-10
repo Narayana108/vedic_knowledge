@@ -3,11 +3,13 @@
 
 **Jai Jai Sri Shyaama Shyaam**
 
-<img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
+<img src="images/nimbark/Nimbarka_Symbol.jpg" width=40% height=40%>
 
 Though the Nimbark sampraday is a very large and well established, having thousands of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
 
 ## History
+<img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
+
 Due the the destruction of Mathura and Vrindavan in the 13th Century and 14th Century, some of the history and important scriptures of the Nimbark sampraday has been lost.
 
 The Nimbark sampraday is one of the most ancient sampradays. The Sampraday originates from Śrī Hansa Bhagavān to Sri Sankadi bhagwan (one of the Four Kumaras), who passed it to Sri Narada Muni; and then on to Sri Nimbarka Acharya ji. 
