@@ -24,6 +24,7 @@ Then Sudarshana Chakra decided to take his incarnation by the order of the Lord.
 
 
 ![Sri Nimbarkacaryaji](images/nimbark/nimbarka.jpg | =100x100)
+<img src="images/nimbark/nimbarka.jpg" width=50% height=50%>
 ![Srimad Hansa Bhagavaan](./images/nimbark/srimad_hamsa_bhagavan.jpg)
 
 ## Philosophy
