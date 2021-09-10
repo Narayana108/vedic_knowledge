@@ -37,7 +37,7 @@ Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta know
 
 Here is a detailed explanation of `Dvaita Advaita`: [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
 
-They follow the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Hari that they worship is Radha and Krishna. 
+The tradition follows the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Hari that they worship is Radha and Krishna. 
 
 _radhaya sahito devo madhvo vaishavottamaih
 archyo bandyashcha dhyeyashcha shrinimbarkapadanugaih_
