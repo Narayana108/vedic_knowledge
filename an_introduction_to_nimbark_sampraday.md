@@ -98,7 +98,9 @@ Within the Nimbark sampraday their is a recent branch who's members receive the 
   
 The Kathia Baba's originally come from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
 
-The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was `Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909)`. The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday. And all of the Acharyas from the different ashrams in the Nimbark sampraday work harmoniously together.
+The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was `Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909)`. 
+
+The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday. And all of the Acharyas from the different ashrams in the Nimbark sampraday work harmoniously together.
 
 ## Tilak
 <img src="images/nimbark/sriji_maharaji.jpg" width=30% height=30%>
