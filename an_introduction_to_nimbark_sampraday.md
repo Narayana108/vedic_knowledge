@@ -89,13 +89,13 @@ Other very well know saints that come from the Nimbark sampraday is `Jayadev Gos
 `Swami Sri Sribhatta`, the elder god-brother of Jayadeva composed the `Yugala Shataka` around 1294 CE for the Dhrupada style of musical presentation like Jayadeva, however unlike Jayadeva who composed his work in Sanskrit, Swami Shribhatta’s compositions are in Vraja Bhasha, a Hindi vernacular which was understood by all inhabitants of Vraja.
 
 ## Branches
+<img src="images/nimbark/nasik-kumbh-mela-pilgrimage-kathia-baba.jpg" width=20% height=20%>
+
 Within the Nimbark sampraday their is a recent branch who's members receive the title `Kathia baba` in their name's. The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (kaupin) worn by them which indicated their renunciation of all bodily pleasures.
   
 The Kathia Baba's originally come from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
 
 The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909). The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday.
-
-<img src="images/nimbark/nasik-kumbh-mela-pilgrimage-kathia-baba.jpg" width=30% height=30%>
 
 ## Tilak
 <img src="images/nimbark/sriji_maharaji.jpg" width=30% height=30%>
