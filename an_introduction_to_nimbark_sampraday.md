@@ -24,8 +24,9 @@ Then Sudarshana Chakra decided to take his incarnation by the order of the Lord.
 
 
 ![Sri Nimbarkacaryaji](images/nimbark/nimbarka.jpg | =100x100)
+![Srimad Hansa Bhagavaan](./images/nimbark/srimad_hamsa_bhagavan.jpg | 100x100<img src="https://user-images.githubusercontent.com/16319829/81180309-2b51f000-8fee-11ea-8a78-ddfe8c3412a7.png" width=50% height=50%>)
 <img src="images/nimbark/nimbarka.jpg" width=50% height=50%>
-![Srimad Hansa Bhagavaan](./images/nimbark/srimad_hamsa_bhagavan.jpg)
+<img src="images/nimbark/srimad_hamsa_bhagavan.jpg" width=50% height=50%>
 
 ## Philosophy
 
@@ -125,9 +126,12 @@ Saviśeṣa Nirviśeṣa
 ## Resources:
 
 [The life and teachings of Shri Nimbarka Acharya](https://www.hinduismtoday.com/educational-resources/the-life-teachings-of-one-of-indias-great-luminaries-shri-nimbarka/)
+
 [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
+
 [An introduction to Nimbark sampraday](https://hi-in.facebook.com/TheGloriousBangioNimbarSamprodoyAshram/posts/shri-radhejai-jagat-guru-shri-nimbarka-achraya-juthe-universal-tradition-of-the-/2460105870717820/)
 [Nimbark sampraday - divine life soceity](https://www.dlshq.org/saints/nimbarka/)
+
 [Nimbark Wiki](https://vedanta.redzambala.com/traditions/nimbarka-sampradaya-nimbarka.html)
 
 
