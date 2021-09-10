@@ -71,7 +71,7 @@ Shyaam Shyaam Radhe Radhe*
 
 This used to be a secret mantra in the sampraday, but it has now been wide spread and chanted by all.
 
-One of the types of Dhyaana that the Nimbarki's perform, is that they meditate focusing between their eyebrows or on their bindi, meditating on Radha Krishna, the yog pit (a mandala where Radha and Krishna and the sakhi's live) and or lila. 
+One of the types of dhyaana that the Nimbarki's perform, is that they meditate focusing between their eyebrows or on their bindi, meditating on Radha Krishna, the yog pit (a mandala where Radha and Krishna and the sakhi's live) and or lila. 
 
 The name, form, qualities and past times of Sri Sri Radha Krishna are seen to be non different from each other. Therefor Dhyaan, Naam Jaap, Srimad Bhagavatam and Maha Vani Gayaan(Chanting) are all the same.
 
