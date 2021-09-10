@@ -23,11 +23,12 @@ There are some scholars that claim that Sri Nimbark Acarya Ji appeared around th
 Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today 5094 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared.
 
 
-<img src="images/nimbark/nimbarka.jpg" width=30% height=30%>
+<img src="images/nimbark/nimbarka-parampara.jpg" width=30% height=30%>
 <img src="images/nimbark/srimad_hamsa_bhagavan.jpg" width=30% height=30%>
 
 ## Philosophy
 
+<img src="images/nimbark/Nimbarka-1-_1.jpg" width=30% height=30%>
 Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
 
 They follow the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Hari that they worship is Radha and Krishna. 
@@ -94,7 +95,10 @@ The Kathia Baba's originally come from the Himalayas. This has influenced this b
 
 The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909). The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday.
 
+<img src="images/nimbark/nasik-kumbh-mela-pilgrimage-kathia-baba.jpg" width=30% height=30%>
+
 ## Tilak
+<img src="images/nimbark/sriji_maharaji.jpg" width=30% height=30%>
 The tilak of the Nimbark sampraday can mean two or more things:
 1. The yellow line represents a mandir, and the bindi represents a murti of Sri Sri Radha Krishna.
 
