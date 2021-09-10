@@ -32,9 +32,11 @@ _Then Sudarshana Chakra decided to take his incarnation by the order of the Lord
 ## Philosophy
 
 <img src="images/nimbark/Nimbarka-1-_1.jpg" width=80% height=80%>
+
 Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
 
 Here is a detailed explanation of `Dvaita Advaita`
+
 [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
 
 
