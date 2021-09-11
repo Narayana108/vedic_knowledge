@@ -4,7 +4,7 @@
 
 **Jai Jai Sri Shyaama Shyaam**
 
-Though the Nimbark sampraday is a very large and well established, having thousands of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
+Though the Nimbark sampraday is a very large and well established, having hundreds of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
 
 ## History
 <img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
@@ -24,7 +24,7 @@ _"O supreme invincible one! Powerful like millions of suns. O My supreme devotee
 
 There are some scholars that claim that Sri Nimbark Acarya Ji appeared around the same time or before the appearance of Shankaracharya ji, but we do not accept this. As per the oral tradition and different Puranic evidence's, one main sources being the Bhavishya Purana, it is clearly stated that Nimbark Acarya incarnated more than 5000 years ago and explains more details about the divine appearance of Sri Nimbark Acaryaji.
 
-_Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today(2021) 5097 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared._
+_Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today(2021) about 5097 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared._
 
 
 
@@ -131,14 +131,18 @@ Nimbark Acarya has written the following scriptures and commentaries:
  
 ## Resources:
 
-[The life and teachings of Shri Nimbarka Acharya](https://www.hinduismtoday.com/educational-resources/the-life-teachings-of-one-of-indias-great-luminaries-shri-nimbarka/)
+- [The life and teachings of Shri Nimbarka Acharya](https://www.hinduismtoday.com/educational-resources/the-life-teachings-of-one-of-indias-great-luminaries-shri-nimbarka/)
 
-[Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
+- [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
 
-[An introduction to Nimbark sampraday](https://hi-in.facebook.com/TheGloriousBangioNimbarSamprodoyAshram/posts/shri-radhejai-jagat-guru-shri-nimbarka-achraya-juthe-universal-tradition-of-the-/2460105870717820/)
-[Nimbark sampraday - divine life soceity](https://www.dlshq.org/saints/nimbarka/)
+- [Nimbark parampara](https://nimbarka.wordpress.com/shri-nimbarka-sampradaya/2008/shri-acharya-parampara-the-guru-disciple-lineage/)
 
-[Nimbark Wiki](https://vedanta.redzambala.com/traditions/nimbarka-sampradaya-nimbarka.html)
+- [Nimbark sampraday](https://nimbarka.wordpress.com/shri-nimbarka-sampradaya/)
+
+- [An introduction to Nimbark sampraday](https://hi-in.facebook.com/TheGloriousBangioNimbarSamprodoyAshram/posts/shri-radhejai-jagat-guru-shri-nimbarka-achraya-juthe-universal-tradition-of-the-/2460105870717820/)
+- [Nimbark sampraday - divine life soceity](https://www.dlshq.org/saints/nimbarka/)
+
+- [Nimbark Wiki](https://vedanta.redzambala.com/traditions/nimbarka-sampradaya-nimbarka.html)
 
 
 ## The End
