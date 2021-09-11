@@ -119,17 +119,15 @@ Their are many different scriptures, but the main scriptures that are focused on
 There are some scholarly Nimbark ashrams that Study Sanskrit, Vedanta and Nimbarkji's scriptures. But those ashrams are few.
 
 Nimbark Acarya has written the following scriptures and commentaries:
-```
-Vedānta Pārijāta Saurabha– Commentary on the Brahma Sutras
-Sadācāra Prakāśa– Commentary on the Bhagavad-Gītā
-Rahasya Ṣoḍaśī- Śrī Gopāla Mantra explained
-Prapanna Kalpa Vallī- Śrī Mukuṇḍa Mantra explained
-Prapatti Cintāmaṇi – On Supreme surrender
-Prātaḥ Smaraṇa Stotram
-Daśa Śloki or Kāmadhenu– Ten Verses
-Saviśeṣa Nirviśeṣa
-Śrī Kṛṣṇa Stavam
-```
+- Vedānta Pārijāta Saurabha– Commentary on the Brahma Sutras
+- Sadācāra Prakāśa– Commentary on the Bhagavad-Gītā
+- Rahasya Ṣoḍaśī- Śrī Gopāla Mantra explained
+- Prapanna Kalpa Vallī- Śrī Mukuṇḍa Mantra explained
+- Prapatti Cintāmaṇi – On Supreme surrender
+- Prātaḥ Smaraṇa Stotram
+- Daśa Śloki or Kāmadhenu– Ten Verses
+- Saviśeṣa Nirviśeṣa
+- Śrī Kṛṣṇa Stavam
  
 ## Resources:
 
