@@ -95,9 +95,9 @@ Other very well know saints that come from the Nimbark sampraday is `Jayadev Gos
 
 Within the Nimbark sampraday their is a recent branch who's members receive the title `Kathia baba` in their name's. The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (kaupin) worn by them which indicated their renunciation of all bodily pleasures.
   
-The Kathia Baba's are originally siddha babaji's that come from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
+The Kathia Baba's where originally siddha babaji's that come down from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
 
-The first Kathia Baba that come down from the Himalayas to start popularising  the branch was `Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909)`. 
+The first Kathia Baba that come down from the Himalayas to start popularising the branch was `Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909)`. 
 
 The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday. And all of the Acharyas from the different ashrams in the Nimbark sampraday work harmoniously together.
 
