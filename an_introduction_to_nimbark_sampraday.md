@@ -4,14 +4,14 @@
 
 **Jai Jai Sri Shyaama Shyaam**
 
-Though the Nimbark sampraday is a very large and well established, having hundreds of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. Also it is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straiten out some facts from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
+Though the Nimbark sampraday is a very large and well established, having hundreds of ashrams and millions of followers. There is still a lot of misunderstandings and mysteries that surround the Nimbark sampraday. It is very difficult to find information online about the sampraday and some of that information is biased and inaccurate. Even from some of my interactions with devotees, I'v heard many strange concepts such as Nimbark sampraday originally worshipping Rukmini and Krishna and only later worshipping Radha and Krishna. Therefor I am writing this article to straighten out some facts from the perspective of the Nimbark sampraday and also to share more information about the sampraday as per the request of devotees who are curious to learn more.
 
 ## History
 <img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
 
 Due the the destruction of Mathura and Vrindavan in the 13th Century and 14th Century, some of the history and important scriptures of the Nimbark sampraday has been lost.
 
-The Nimbark sampraday is one of the most ancient sampradays. The Sampraday originates from Śrī Hansa Bhagavān to Sri Sankadi bhagwan (one of the Four Kumaras), who passed it to Sri Narada Muni; and then on to Sri Nimbarka Acharya ji. 
+The Nimbark sampraday is one of the most ancient sampradays. The Sampraday originates from Śrī Hansa Bhagavān to Sri Sankadi Bhagavān (one of the Four Kumaras), who passed it to Sri Narada Muni; and then on to Sri Nimbarka Acharya ji. 
 
 According to tradition, Narada Muni initiated Śrī Nimbārkācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
 
@@ -56,7 +56,7 @@ _- Maha vani_
 
 _"I ceaselessly praise Radha who is none other than Krishna, and Sri Krishna who is none other than Radha, whose unity is represented by the Kaamabeeja and who are forever resident in Nikunja Goloka Vrndavana."_
 
-A lot of this may sound familiar as most people are already acquainted with the famous Hare Krishna movement or Gaudiya Vaishnavism. As one can see there are striking similarities between the Gaudiya's and Nimbarki's. They share many identical concepts such dvaita-advaita, bhakti, tattva's and the worship of Radha Krishna. Therefor a lot of this knowledge is transferable between the sampradays. And ofcourse there are differences as well, but the differences in my opinion are minor, one example is that in Nimbark leela, Radha and Krishna are married to each other.
+A lot of this may sound familiar as most people are already acquainted with the famous Hare Krishna movement or Gaudiya Vaishnavism. As one can see there are striking similarities between the Gaudiya's and Nimbarki's. They share many identical concepts such dvaita-advaita, bhakti, tattva's and the worship of Radha Krishna. Therefor a lot of this knowledge is transferable between the sampradays. And of course there are differences as well, but the differences in my opinion are minor, one example is that in Nimbark leela, Radha and Krishna are married to each other.
 
 ## Practice/Sadhana
 Archana, karma yoga, different types of dhyaana, gyaana, etc are all included in Nimbark sampraday. But the tradition has strong emphasis on naam japa and this is the main sadhana.
@@ -70,12 +70,12 @@ Shyaam Shyaam Radhe Radhe*
 
 This used to be a secret mantra in the sampraday, but it has now been wide spread and chanted by all.
 
-One of the types of dhyaana that the Nimbarki's perform, is that they meditate focusing between their eyebrows or on their bindi, meditating on Radha Krishna, the yog pit (a mandala where Radha and Krishna and the sakhi's live) and or lila. 
+One of the types of dhyaana that the Nimbarki's perform, is that they meditate focusing between their eyebrows or on their bindi, meditating on Radha Krishna, the yog pit (a mandala where Radha and Krishna and the sakhi's live) and or leela. 
 
 The name, form, qualities and past times of Sri Sri Radha Krishna are seen to be non different from each other. Therefor Dhyaan, Naam Jaap, Srimad Bhagavatam and Maha Vani Gayaan(Chanting) are all the same.
 
 ## Moksha
-The type of moksha that is desired in the Nimbark sampraday is to attain an eternal spiritaul body, become the servant of Sri Yugal Sarkar(Radha Krishna) and to reside with them in their eternal abode `Sri Vrindavan Dham`. 
+The type of moksha that is desired in the Nimbark sampraday is to attain an eternal spiritual body, become the servant of Sri Yugal Sarkar(Radha Krishna) and to reside with them in their eternal abode `Sri Vrindavan Dham`. 
 
 It is a state of awareness of full identity with the divine couple Sri Sri Radha Krishna.
 
@@ -95,9 +95,9 @@ Other very well know saints that come from the Nimbark sampraday is `Jayadev Gos
 
 Within the Nimbark sampraday their is a recent branch who's members receive the title `Kathia baba` in their name's. The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (kaupin) worn by them which indicated their renunciation of all bodily pleasures.
   
-The Kathia Baba's originally come from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
+The Kathia Baba's are originally siddha babaji's that come from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
 
-The first Kathia Baba that come down from the Himalayas and started spreading the Kathia baba branch was `Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909)`. 
+The first Kathia Baba that come down from the Himalayas to start popularising  the branch was `Sri Ram Das Kathia Baba(24 July 1800 - 8 February 1909)`. 
 
 The Ishta dev, paramapara, diksha mantras, tilak, scriptures are all the same, and this is not seen as a separate branch, but it is seen as apart of the Nimbark sampraday. And all of the Acharyas from the different ashrams in the Nimbark sampraday work harmoniously together.
 
@@ -111,7 +111,7 @@ The tilak of the Nimbark sampraday can mean two or more things:
 2. The yellow outline represents Sriji's(Radha's) charan(Lotus feet) and the black bindi between the eye brows represents Krishna or the yog pit, a mandala where Radha and Krishna and the Sahecharis live. 
 
 ## Nimbark Tyagi's
-The renunciates in Nimbark sampraday are known as tyagi's. They do not wear safforn, they where a white dhoti with no pleat and white shol.
+The renunciates in Nimbark sampraday are known as tyagi's. They do not wear saffron, they wear a white dhoti with no pleat and white shol.
 
 ## Scripture's
 Their are many different scriptures, but the main scriptures that are focused on are: `Bhagavad Gita`, `Srimad Bhagavatam`, `Bhakta Maal` and the rasiks recite `Maha Vani`.
@@ -147,7 +147,5 @@ Nimbark Acarya has written the following scriptures and commentaries:
 
 ## The End
 
-```
-vanchha kalpatarubhyashcha kripa sindhubhya eva cha
-patitanam pavanebhyo vaishnavebhyo namo namah
-```
+_vanchha kalpatarubhyashcha kripa sindhubhya eva cha
+patitanam pavanebhyo vaishnavebhyo namo namah_
