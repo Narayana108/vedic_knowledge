@@ -1,25 +1,8 @@
 # Work in progress
 
-This article is work in progress, as there are 2 points that I need more clarity on. 
-
-1. The time period that Sri Nimbark Acaryaji existed in
-2. The yugal upasana of Sri Nimbark Acayryaji
-
-### 1. The time period that Sri Nimbark Acaryaji existed in
-The date of birth is not a big deal, as non of the philosophy or teachings of Nimbark Acaryaji is linked or dependant to Nimbark Acharyaji being born in a specific time period.
-
-I recently found out that the Bhavishya Purana is not a very realible text.
-More can details can be found on Wikipedia !(Bhavishya Purana - Wikipedia)[https://www.wikiwand.com/en/Bhavishya_Purana]
-
-So I will dig deeper into this subject matter.
-
-### 2. The Yugal upasana of Sri Nimbark Acharyaji
-What is clear is that Sri Nimbark Acharyaji is a rasik and worshipped Yugal Kishor as revealed by His disciples. 
-And I even have 2 quotes that mention Radha from His own commentaries.
-
-I just want to get a good understanding of exactly what Sri Nimbark Acharyaji was preaching exactly during the time period that He was alive in.
-
-Note that me knowing any of these 2 points will give me bhakti, but I am curious.
+This article is work in progress. 
+The only thing I will still do more research on is the History of Sri Nimbark Acarya. 
+I might also give more information on Nimbark ji's Yugal Upasana.
 
 # An introduction to Nimbark Sampraday
 
