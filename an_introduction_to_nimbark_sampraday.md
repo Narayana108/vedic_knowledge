@@ -1,7 +1,7 @@
 # Work in progress
 
 This article is work in progress. 
-The only thing I will still do more research on is the History of Sri Nimbark Acarya. 
+The only thinkg that I will do more work on is the history of Sri Nimbark Acarya. 
 I might also give more information on Nimbark ji's Yugal Upasana.
 
 # An introduction to Nimbark Sampraday
