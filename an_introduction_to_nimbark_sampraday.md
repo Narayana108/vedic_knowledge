@@ -10,7 +10,7 @@ _This article is work in progress..._
 
 There are a lot of mysteries that surround the Nimbark sampraday. With very little information available online and very few books available in english, the sampraday may also be difficult for people living outside of India to learn about. This article is an attempt to share a brief overview of the Nimbark sampraday from the perspective of the tradition.
 
-There has been queit a bit of historical work done on the Nimbark sampraday, but given its age and all its contributions to India's rich culture and heritage, it is a treasure chest filled with many more jewels for indologists to discover.
+There has been quiet a bit of historical work done on the Nimbark sampraday, but given its age and all its contributions to India's rich culture and heritage, it is a treasure chest filled with many more jewels for indologists to discover.
 
 ## History
 <img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
@@ -235,7 +235,7 @@ ancient sage.
 `Sri Jayadev Goswami` who wrote the immaculate sacred poem called `Gita Govinda` in sanskrit.
 
 -----
-`Swami Haridas` who founded his own sampraday called `Sri Haridas sampraday` is connected to a branch of the Nimbark sampraday that is coming from the 16th Acharya Sri Devacharyaji
+`Swami Haridas` who founded the `Sri Haridas sampraday` is connected to a branch of the Nimbark sampraday that is coming from the 16th Acharya Sri Devacharyaji
 
 -----
 
