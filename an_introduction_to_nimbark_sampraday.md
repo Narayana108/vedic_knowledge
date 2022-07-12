@@ -8,16 +8,16 @@
 
 _This article is work in progress..._
 
-There are a lot of mysteries that surround the Nimbark sampraday. With very little information avaible online and very few books available in english, the sampraday may also be difficult for people living outside of India to learn about. This article is an attempt to share a brief overview of the Nimbark sampraday from the perspective of the tradition.
+There are a lot of mysteries that surround the Nimbark sampraday. With very little information available online and very few books available in english, the sampraday may also be difficult for people living outside of India to learn about. This article is an attempt to share a brief overview of the Nimbark sampraday from the perspective of the tradition.
 
-There has been queit a bit of historical work done on the Nimbark sampraday, but given its age and all its contributions to India's rich culture and heritage, it is a treausure chest filled with many more jewels for indologists to discover.
+There has been queit a bit of historical work done on the Nimbark sampraday, but given its age and all its contributions to India's rich culture and heritage, it is a treasure chest filled with many more jewels for indologists to discover.
 
 ## History
 <img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
 
-The Nimbark sampraday is the most ancient living vaishnav sampraday. Though some modern scholars try dispute this due to lack of evidence, they themselfs present many varying timelines all very far apart with very little evidence to support their claims aswell, which is ironic because this falls into the same fallacy that they use against the tradition.
+The Nimbark sampraday is the most ancient living vaishnav sampraday. Though some modern scholars try dispute this due to lack of evidence, they themselves present many varying timelines all very far apart with very little evidence to support their claims as well, which is ironic because this falls into the same fallacy that they use against the tradition.
 
-Many Indologists have underlined the fact that history has not been kind to the Nimbārka Sampradāya. Nevertheless, the tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
+Many indologists have underlined the fact that history has not been kind to the Nimbārka Sampradāya. Nevertheless, the tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
 
 Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also especially in the early days, the esoteric knowledge or Radha and the yugal maha mantra was kept secret. This lead to the sampraday dimenitioning towards the 13th to 15th Century. Which then got revived and widespread mainly by Sri Harivyas dev achyarya and his 12 main disciples.
 
@@ -27,18 +27,23 @@ The Sampraday originates from Śrī Hansa Bhagavān to Sri Sankadi Bhagavān (Th
 
 According to tradition, Narada Muni initiated Śrī Nimbārkācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
 
+### Related articles
+- [Ancient Nimbark temple, 350 - 400 years old](https://a108.net/blogs/entry/38005-nimbark-temples-of-chhipi-gali-nimbark-kot-ajab-manohar-lal/)
+
+- [Origines of the Ras Lila Tradition](https://a108.net/blogs/entry/15339-karhala-village-origin-of-the-raas-lila-tradition/)
+
+
 ## Philosophy
 
 <img src="images/nimbark/Nimbarka-1-_1.jpg" width=80% height=80%>
 
-Sri Nimbark Acaryaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
+Sri Nimbark Acharyaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
 
 The relation between Brahman and Jiva, according to Nimbarka is like tree and its branches. Branches have all qualities of the tree, but the branches are not the tree as a whole. Likewise Jiva is anu (small) having all qualities like Brahman(bibhu-large), but with limited extent. Brahman resides in the heart of Jiva, but Jiva has no realization due to Maya (illusion). This is the basic idea of Dvaitadvaita Siddhanta.
 
 Here is a detailed explanation of `Dvaita Advaita`: [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
 
-
-The tradition follows the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Sri Hari that they worship is Sri Sri Radha Krishna. Though in Sri Nimbark Acaryas Vedanta Parijata Saurabha, a commentary on the Vedanta Sutra's, there is no mention of Radha Krishna, this is because many of the sampradays teachings where kept secret, especiialy with Sri Radha being a secret deity during that era, and rasik upasana is outside the direct subject matter of the Veda's, which would not bring much interest to Vedantists.
+The tradition follows the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Sri Hari that they worship is Sri Sri Radha Krishna. Though in Sri Nimbark Acaryas Vedanta Parijata Saurabha, a commentary on the Vedanta Sutra's, there is no mention of Radha Krishna, this is because many of the sampradays teachings where kept secret, especiialy with Sri Radha being a secret deity during that era, and rasik upasana is outside the direct subject matter of the Veda's, which would not bring much interest to strict Vedantists.
 
 _radhaya sahito devo madhvo vaishavottamaih
 archyo bandyashcha dhyeyashcha shrinimbarkapadanugaih_
@@ -123,38 +128,39 @@ Nimbark Acarya has written the following scriptures and commentaries:
 
 -----
 ### Shri Shrinivasacharyaji Maharaj (5th)
-Shri Shrinivasacharyaji Maharaj, the foremost disciple of Shri Nimbarkacharya, who wrote a masterly analysis of the Vedanta Parijata Sourabh, composed by his Guru,   named `Vedanta Koustubh Bhashya`.
+Shri Shrinivasacharyaji Maharaj, the foremost disciple of Shri Nimbarkacharya, who wrote a masterly analysis of the Vedanta Parijata Sourabh, composed by his Guru, named `Vedanta Koustubh Bhashya`.
 
-The Brihadbhashya Vedanta on the Brahma Sutras produced by you  is well known as  "Kaustubha" There are many other works besides this, of which only the '' Laghustavaraja ' gets, other-famous decisions, Parijat Saurabh Bhashya, Rahasya Prabandha, Kathopanishad Bhashya etc. are unavailable.
+There are many other holy works besides this, of which only `Laghustavaraja` is also well known work. `Parijat Saurabh Bhashya`, `Rahasya Prabandha`, `Kathopanishad Bhashya` etc. are unavailable.
 
 -----
 ### Shri Purushottamacharyaji (7th)
-The `Vedanta Kamadhenu Dashashloki` composed by Shri Nimbarkacharya was further explained by Acharya Shri Purushottamacharyaji, under the name of `Vedanta Ratna Manjusha` , which is well respected. 
-You find many texts written by Shri. Among them, the detailed commentary on " Vedanta Kamadhenu Dasashloki " is your well-known work " Vedantaratnamanjusha" His detailed character is mentioned in the preface to Vedantaratnamanjusha. Patotsav is held on Chaitra Shukla 6 (Sixth) .
-
+The `Vedanta Kamadhenu Dashashloki` composed by Shri Nimbarkacharya was further explained by Acharya Shri Purushottamacharyaji, under the name of `Vedanta Ratna Manjusha`, which is one of his well respected works.
 
 -----
 ### Shri KeshavKashmiri Bhattacharyaji Maharaj (33rd)(Around 1420-1490)
-Your status is believed to be 13th century. You had done Digvijay many times by visiting India. The adjective " Kashmiri " became famous with your name due to more residence in Kashmir . In Kashmir itself, you wrote "Kaustubh Prabha" on Vedanta sutras.Wrote a detailed commentary called Ujjain and after staying for a few days in Ujjain wrote " Tattva-  prakashika --  a commentary" on Shrimad Bhagvad Gita , was also written in Bhagwat, but only the reference of " Veda Stuti " is available in it. Similarly, you also have a book named "Kram -Deepika"  , in which the rituals are described in a systematic manner. You also have a detailed Sanskrit commentary on Shrimad Bhagavad Gita and Upanishads.
-Your Patotsav is celebrated on Jyeshtha Shukla Chaturthi .
+He was renowned scholar through out india and was also known as Digvijay (Who is victorious over everyone) by being victorias in his debates throughout India.
 
-Shri KeshavKashmiri Bhattacharyaji Maharaj elaborated on the Vedanta Koustubh Bhashya in his well received work titled, PRABHAVRITTI. This acharya’s work named KRAMDIPIKA on Tantra is very famous. He is also known for defeating the purpose of the YANTRA placed by Yavan Kaji at the Vishram Ghat in Mathura, by using his own Yantra, thus upholding the Hindu Culture and also the Vedic Vaishnava Sampradayas.
+Shri KeshavKashmiri Bhattacharyaji Maharaj elaborated on the `Vedanta Koustubh Bhashya` Sri Nimbark Acharya's commentary on Vedanta Sutras, in His well received work titled, `Prabhavritti` or `Vedanta Kaustubh Prabhavritti`. 
+
+This acharya’s work named `Kramdipika` on Tantra is very famous. Maharaji also wrote a commentary on the Bhagavad Gita titled `Tattva Prakashika`. 
+
+He is also known for defeating the purpose of the YANTRA placed by Yavan Kaji at the Vishram Ghat in Mathura, by using his own Yantra, thus upholding the Hindu Culture and also the Vedic Vaishnava Sampradayas.
 
 <img src="images/nimbark/vishram_ghat.jpg" width=20% height=20%>
 
-Viśhrām Ghāṭ in Vṛindāvan, the headquarters of the Nimbārka Sampradāya from the time of Śhrī Keśhavakāśhmīri Bhaṭṭāchārya (1400’s) until the 1560’s, when Jagadguru Swāmī Paraśhurāma Devāchārya relocated it to Salemabād, Ajmer, in Rajasthan. ARUN MISRA
+Viśhrām Ghāṭ in Vṛindāvan, the headquarters of the Nimbārka Sampradāya from the time of Śhrī Keśhavakāśhmīri Bhaṭṭāchārya (1400’s) until the 1560’s, when Jagadguru Swāmī Paraśhurāma Devāchārya relocated it to Salemabād, Ajmer, in Rajasthan.
 
 
 -----
 <img src="images/nimbark/sri_bhatta_dev.jpg" width=15% height=15%>
 
-### Swami Sri Sribhatta Devāchārya (Around 1440-1520)
+### Swami Sri Sribhatta Devāchārya (34th)(Around 1440-1520)
 
 It is said the he was the first-ever author to compose Vāṇī poetry in Braj Bhāṣhā. This Vani is called `Yugala Shataka`. 
 
 -----
 ### Sri Hari Vyas Dev Acharya (35th)(Around 1470-1540)
-One of the most important Acarya's in the sampraday is Sri Hari Vyas Deva Acharyaji. He spread the nimbark sampraday at large with is 12 main disciples.
+One of the most important Acarya's in the sampraday is Sri Hari Vyas Deva Acharyaji. He spread the nimbark sampraday at large with his 12 main disciples.
 
 He too has many texts composed in Sanskrit and Vrajbhasha. Among them `Siddhanta Ratnanjali` in Sanskrit is the most famous. This book is in the form of interpretation of `Vedanta Kamadhenu Dashashloki` by Shri Nimbark Acharya. `Mahavani` is the main text in Vrajbhasha . This rasa is considered the best among the scriptures. This Mahavani is like a great commentary of `Sri Yugal Shatak` by Shri Bhattadevacharyaji. 
 
@@ -177,8 +183,6 @@ Svāmī Svabhūrāma Devācārya (fl.16th century CE) was born in Budhiya Villag
 Sri Nagaji Maharaji is famed as the initiator of the famous Braja 84 Kos Parikrama Yatra. By virtue of unflinching spiritual penances and practices Chatura Chintamani Maharaj possessed such spiritual powers that He would do the circumambulation of the Braja 84 Kos (approx. 300km) in a day which a normal devotee takes around 42 days. But, even after years of resolved spiritual penances The Divine vision of the Yugal Sarkar eluded Nagaji. Once Nagaji was so frustrated with Bhagwan for not revealing himself that he started to walk away from Vrindaban with an intension of leaving Brajadham forever. But while Chatura Chintamani ji started to walk off from His perch, His “Jata”, long locks got entangled in the bushy thorns. He could not move a bit and was stuck there for three night and three days without food and shelter, but with firm faith that Lord will come down to rescue. Lord too was testing His devotee’s fortitude. However, Radharani , the ever compassionate mother could not bear the sight anymore and appeared to Nagaji along with Lord. She brought food and sweet milk for her devotee and fed it herself to him just like a mother. Together the divine couple detangled the locks from the thorny shrubs and fulfilled Nagaji’s long cherished wish. This lila of Bhakt and Bhagwan has been highly gloried in the whole of Vaishnava community till date.
 
 
-
-
 -----
 <img src="images/nimbark/54-yogiraj-swami-ramdas-kathia-baba-maharaj.jpg" width=20% height=20%>
 
@@ -192,7 +196,6 @@ Yogiraj Swami Ramdas Kathia Baba Maharaj, was a self-realised saint who personif
 
 ### Swami Santadas Kathiababa Maharaj (55th)(1859 - )
 A leading disciple of Sri Sri 108 Ramdas Kathiababa Maharaji. At the place of Jagannath Ghat, Gangotri, the source of the Ganges, floated in front of him and Har-Parvati, who was present in it, visited him. Lord Shankara then gave him a monosyllabic seed mantra and by chanting that mantra he would gain Sadguru - with such an assurance they disappeared. Then the scene of that Gomukh Gangotri in the Himalayas also disappeared. He started chanting that seed mantra with great devotion. In search of a good guru, he went on various pilgrimages and gradually he arrived at the Prayag Kumbh Mela with a friend. Although his interview here was with his future Gurudev Sri Sri Kathia Babaji Maharaj, he was skeptical about whether he would take him seriously. He saw some miracles of Sri Sri Ram Das Kathia Babaji Maharaj, but could not be completely accept it without doubt. Then he went to Vrindavan in the month of Chaitra and this time he was almost disappointed to see his work from very close to Kathia Babaji Maharaj. Far from considering Sri Sri Kathia Babaji Maharaj as a Brahmajna Mahapurusha, Sri Tarakishore Babu considered him to be an ordinary old village saint. But when his miraculous deeds came to mind, he could not understand exactly what was wrong with his decision. With this skeptical mind he returned to Calcutta. One night in Calcutta, when he was sleeping on the roof of his house, he suddenly woke up and sat up. He saw Sri Sri Ramdas Kathia Babaji Maharaj coming towards Akash Marg and in a short time he came down to him on that roof. After that, Kathia Babaji Maharaj gave a mantra in his ear and left again. There was no other doubt in the mind of Sri Tara Kishore Sharma Chowdhury about Sri Sri Kathia Babaji Maharaj. All his hesitations were immediately dispelled and he considered himself fortunate to have taken refuge in the desired Sadguru. Even after being miraculously initiated in this way, he formally took wife's initiation in Vrindavan on the day of Janmashtami in 1894.
-
 
 
 -----
@@ -264,11 +267,6 @@ The renunciates in Nimbark sampraday are known as babaji's. They do not wear saf
 Their are many different scriptures, but the main scriptures that are focused on are: `Bhagavad Gita`, `Srimad Bhagavatam`, `Bhakta Maal` and the rasiks recite `Maha Vani`.
 
 There are some scholarly Nimbark ashrams that Study Sanskrit, Vedanta and Nimbarkji's scriptures. But those ashrams are few.
-
-## Articles
-- [Ancient Nimbark temple, 350 - 400 years old](https://a108.net/blogs/entry/38005-nimbark-temples-of-chhipi-gali-nimbark-kot-ajab-manohar-lal/)
-
-- [Origines of the Ras Lila Tradition](https://a108.net/blogs/entry/15339-karhala-village-origin-of-the-raas-lila-tradition/)
 
 ## Resources:
 - [The life and teachings of Shri Nimbarka Acharya](https://www.hinduismtoday.com/educational-resources/the-life-teachings-of-one-of-indias-great-luminaries-shri-nimbarka/)
