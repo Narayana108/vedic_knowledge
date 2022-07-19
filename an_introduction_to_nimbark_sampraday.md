@@ -8,24 +8,30 @@
 
 _This article is work in progress..._
 
+The Sampraday also has is known by the following names: *Hamsa*, *Catuhsana*, *Kumara* or *Sanat* *sampradaya*
+
 There are a lot of mysteries that surround the Nimbark sampraday. With very little information available online and very few books available in english, the sampraday may also be difficult for people living outside of India to learn about. This article is an attempt to share a brief overview of the Nimbark sampraday from the perspective of the tradition.
 
-There has been quiet a bit of historical work done on the Nimbark sampraday, but given its age and all its contributions to India's rich culture and heritage, it is a treasure chest filled with many more jewels for indologists to discover.
+There has been quiet a bit of historical work done on the Nimbark sampraday, but given its age and all its contributions to India's rich culture and heritage, it is a treasure chest filled with many more jewels for indologists to uncover.
 
-## History
+## Origin
 <img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
-
-The Nimbark sampraday is the most ancient living vaishnav sampraday. Though some modern scholars try dispute this due to lack of evidence, they themselves present many varying timelines all very far apart with very little evidence to support their claims as well, which is ironic because this falls into the same fallacy that they use against the tradition.
-
-Many indologists have underlined the fact that history has not been kind to the Nimbārka Sampradāya. Nevertheless, the tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
-
-Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also especially in the early days, the esoteric knowledge or Radha and the yugal maha mantra was kept secret. This lead to the sampraday dimenitioning towards the 13th to 15th Century. Which then got revived and widespread mainly by Sri Harivyas dev achyarya and his 12 main disciples.
-
-As time passed the sampraday had become very small due to lack of ashrams and preaching. The sampradays head courters was situated in Mathura Vrindavan. Due to the destruction of Mathura and Vrindavan, parts of the history and many important scriptures of the Nimbark sampraday has been lost.
 
 The Sampraday originates from Śrī Hansa Bhagavān to Sri Sankadi Bhagavān (The Four Kumaras), who passed it to their younger brother Sri Narada Muni; and then on to Sri Nimbarka Acharya ji. 
 
 According to tradition, Narada Muni initiated Śrī Nimbārkācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
+
+## History
+
+The Nimbark sampraday is the most ancient living vaishnav sampraday. Though some modern scholars try dispute this due to lack of evidence, they themselves present many varying timelines all very far apart with very little evidence to support their claims as well, which is ironic, because this falls into the same fallacy that they use against the tradition.
+
+Though there are also many other scholars such as Satyanand Joseph, Prof. Rasik Bihari Joshi, Prof. M. M. Aggrawal etc., that state that Sri Nimbarks time period to be at least of the same time or before the appearance of Shankaracharya.
+
+Many indologists have underlined the fact that history has not been kind to the Nimbārka Sampradāya. Nevertheless, the tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
+
+Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also especially in the early days, the esoteric knowledge of Sri Radha and the yugal maha mantra was kept secret. This lead to the sampraday slowly diminishing and towards the 13th to 15th Century it was almost lost. Fortunatly the sampraday got revived and widespread during the 15th Century mainly by Sri Harivyas dev achyarya and his 12 main disciples.
+
+While the sampraday was at its smallest numbers during the 13th Century and 14th Century, the destruction of Mathura and Vrindavan occurred, and many important scriptures of the Nimbark sampraday has been lost.
 
 ### Related articles
 - [Ancient Nimbark temple, 350 - 400 years old](https://a108.net/blogs/entry/38005-nimbark-temples-of-chhipi-gali-nimbark-kot-ajab-manohar-lal/)
@@ -39,11 +45,13 @@ According to tradition, Narada Muni initiated Śrī Nimbārkācārya into the sa
 
 Sri Nimbark Acharyaji is the sampraday acharya and established the siddhanta known as `Dvaita Advaita` also known as `Bhedabheda`, `Dualistic Non-Dualism`. The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
 
+While the material universe is not seen as the highest reality, it is also not seen as an illusion, and the jiva(individual soul) who is trapped in this lower dimention which contains all sorts of misseries (also known as samsara) needs to utilizie his time in realising his real divine identity and relation with Supreme Godhead in order to transcend this reality and to be to be liberated from samsara.
+
 The relation between Brahman and Jiva, according to Nimbarka is like tree and its branches. Branches have all qualities of the tree, but the branches are not the tree as a whole. Likewise Jiva is anu (small) having all qualities like Brahman(bibhu-large), but with limited extent. Brahman resides in the heart of Jiva, but Jiva has no realization due to Maya (illusion). This is the basic idea of Dvaitadvaita Siddhanta.
 
 Here is a detailed explanation of `Dvaita Advaita`: [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
 
-The tradition follows the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Sri Hari that they worship is Sri Sri Radha Krishna. Though in Sri Nimbark Acaryas Vedanta Parijata Saurabha, a commentary on the Vedanta Sutra's, there is no mention of Radha Krishna, this is because many of the sampradays teachings where kept secret, especiialy with Sri Radha being a secret deity during that era, and rasik upasana is outside the direct subject matter of the Veda's, which would not bring much interest to strict Vedantists.
+The tradition follows the teachings of Srimad Bhagavatam and of Sri Nimbark Acharyaji, which state that the worship of Sri Vishnu and His forms are supreme, Thus classifying the Nimbark sampraday as a Vaishnav sampraday. But the only form of Sri Hari that they worship is Sri Sri Radha Krishna.
 
 _radhaya sahito devo madhvo vaishavottamaih
 archyo bandyashcha dhyeyashcha shrinimbarkapadanugaih_
@@ -75,7 +83,7 @@ Here are the 5 limbs of the sadhana that is performed within the tradition:
 4. Prapatti (surrender to the Lord/devotion);
 5. Gurupasatti (devotion and self-surrender to God as Śrī Rādhā Kṛṣṇa)
 
-Even though all 5 limbs are important and required in the body of the Nimbarki sadhana to attain moksha(salvation). Special attention is given towards _Gurupasatti Yoga_. According to Sri Nimbarka, The jiva can attain salvation only by obeying the advices of Guru. If one follows the instructions of his/her Guru in an unperturbed, indiscriminate, unopposed manner he/she can attain the Moksha (liberation from all bondages even births and deaths) without observing any other rituals.
+Even though all 5 limbs are important and required in the body of the Nimbarki sadhana to attain moksha(salvation). Special attention is given towards _Gurupasatti Yoga_. According to Sri Nimbarka, The jiva can attain salvation by obeying the intructions of the Guru. If one follows the instructions of his/her Guru in an unperturbed, indiscriminate, unopposed manner he/she can attain Moksha without observing any other rituals.
 
 One of the types of dhyaana that the Nimbarki's perform, is that they meditate focusing between their eyebrows or on their bindi, visualizing Radha Krishna's forms and or partaking in leela with Radha and Krishna with one's spiritual body. Most of the rituals, upasana and dhyaana done by most Vaishnava's are in the tantric category of Vedic worship.
 
@@ -89,6 +97,7 @@ Shyām Shyām Rādhe Rādhe
 ```
 
 ## Moksha
+
 The type of moksha(liberation) that is focussed on in the Nimbark sampraday is a state of awareness of full individual identity and simultatous oneness with the divine couple Sri Radha Krishna, where one reside's in the eternal realm of Sri Vrindavan Dham with Sri Shyaama Shyaam Yugal Sarkar. One may attain in this life or when one leaves ones physical body an eternal spiritual body with a specific relationship with Radha and Krishna, such as becoming a servant, friend, parent, child, etc with Sri Yugal Sarkar(Radha Krishna). Though other forms of moksha may also be attained, as this is a personal choice.
 
 ## Acharya's 
@@ -96,9 +105,13 @@ The type of moksha(liberation) that is focussed on in the Nimbark sampraday is a
 The amount of Acharyas and Mahants in the sampraday is astounding. These are just most of the historically significant Guru Maharaj's.
 
 ----
-<img src="images/nimbark/nimbark_bhagavaan.jpg" width=20% height=20%>
+<img src="images/nimbark/nimbark_bhagavaan.jpg" width=25% height=25%>
 
 ### Jagad Guru Shri Nimbarkacharya Maharaj (4th) (11 century A.D or 3096 A.D [Disputed])
+
+The Sutras of Maharishi Veda Vyasa form the basis of Vedanta. From the various interpretations of the same, four  main schools of thought emerged. The Keval Advaita of Sri Sankaracharya, the Visishta Advaita of Sri Ramanujacharya, the Dvaita philosophy of Sri Madhavacharya and the Bhedabheda or Dvaitadvaita philosophy of Sri Nimbarkacharya.  However, Sri Nimbarkacharya has been able to reconcile all the other school of thoughts and his Bhashya on the Brahma Sutras appears to pre-date all other Bashyas on the Brahma Sutras.
+
+Sri Nimbark Acharya is also the oldest known acharya to worship Radha along with Krishna in Sakhi Bhava Upasana method of worship.
 
 Sri Nimbarkacharya appeared in different ages. It is mentioned in Acharya Charitra, Naimisha Khanda, Vamana Purana and Bhavishya Purana. Once the devotees prayed to the Lord to protect them and the religious path. Then the Lord told His Sudershan Chakra,
 
@@ -111,7 +124,6 @@ As per the oral tradition and Puranic evidence's, one main sources being the Bha
 
 _Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today(2022) about 5098 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared._
 
-The Sutras of Maharishi Veda Vyasa form the basis of Vedanta. From the various interpretations of the same, four  main schools of thought emerged. The Keval Advaita of Sri Sankaracharya, the Visishta Advaita of Sri Ramanujacharya, the Dvaita philosophy of Sri Madhavacharya and the Bhedabheda or Dvaitadvaita philosophy of Sri Nimbarkacharya.  However, Sri Nimbarkacharya has been able to reconcile all the other school of thoughts and his Bhashya on the Brahma Sutras appears to pre-date all other Bashyas on the Brahma Sutras.
 
 Nimbark Acarya has written the following scriptures and commentaries:
 ```
@@ -146,7 +158,7 @@ This acharya’s work named `Kramdipika` on Tantra is very famous. Maharaji also
 
 He is also known for defeating the purpose of the YANTRA placed by Yavan Kaji at the Vishram Ghat in Mathura, by using his own Yantra, thus upholding the Hindu Culture and also the Vedic Vaishnava Sampradayas.
 
-<img src="images/nimbark/vishram_ghat.jpg" width=20% height=20%>
+<img src="images/nimbark/vishram_ghat.jpg" width=30% height=30%>
 
 Viśhrām Ghāṭ in Vṛindāvan, the headquarters of the Nimbārka Sampradāya from the time of Śhrī Keśhavakāśhmīri Bhaṭṭāchārya (1400’s) until the 1560’s, when Jagadguru Swāmī Paraśhurāma Devāchārya relocated it to Salemabād, Ajmer, in Rajasthan.
 
@@ -264,7 +276,7 @@ The tilak of the Nimbark sampraday can mean two or more things:
 The renunciates in Nimbark sampraday are known as babaji's. They do not wear saffron, they wear a white dhoti with no pleat and white or yellow shaul.
 
 ## Scripture's
-Their are many different scriptures, but the main scriptures that are focused on are: `Bhagavad Gita`, `Srimad Bhagavatam`, `Bhakta Maal` and the rasiks recite `Maha Vani`.
+Their are many different scriptures, but the main scriptures that are focused on are: `Bhagavad Gita`, `Srimad Bhagavatam`, `Bhakta Maal` and the rasik saints recite `Maha Vani`.
 
 There are some scholarly Nimbark ashrams that Study Sanskrit, Vedanta and Nimbarkji's scriptures. But those ashrams are few.
 
@@ -283,6 +295,8 @@ There are some scholarly Nimbark ashrams that Study Sanskrit, Vedanta and Nimbar
 - [Nimbark Wiki](https://vedanta.redzambala.com/traditions/nimbarka-sampradaya-nimbarka.html)
 
 - [Nimbark Parikar](https://nimbarkparikar.blogspot.com/)
+
+- [Brief History of Nimbark Sampraday](https://www.liquisearch.com/radha_krishna/nimbarka_sampradaya)
 
 ## The End
 
