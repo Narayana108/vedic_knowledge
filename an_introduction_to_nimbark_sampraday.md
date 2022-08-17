@@ -135,7 +135,7 @@ All the names of God have all of His and Her divine potencies in them and are no
 
 ## Moksha
 
-The type of moksha(liberation) that is focussed on in the Nimbark sampraday is a state of awareness of full individual identity and simultatous oneness with the divine couple Shri Radha Krishna, where one reside's in the eternal realm of Shri Vrindavan Dham with Shri Shyaama Shyaam Yugal Sarkar. One may attain in this life or when one leaves ones physical body an eternal spiritual body with a specific relationship with Radha and Krishna, such as becoming a servant, friend, parent, child, etc with Shri Yugal Sarkar(Radha Krishna). Though other forms of moksha may also be attained, as this is a personal choice.
+The type of moksha(liberation) that is focussed on in the Nimbark sampraday is a state of awareness of full individual identity and simultatous oneness with the divine couple Shri Radha Krishna, where one reside's in the eternal realm of Shri Vrindavan Dham with Shri Shyaama Shyaam Yugal Sarkar. One may attain in this life or when one leaves ones physical body an eternal spiritual body with a specific relationship with Radha and Krishna, such as becoming a servant, friend, parent, child, etc with Shri Yugal Sarkar(Radha Krishna). Other forms of moksha may also be attained, as this is ones personal choice, but generally one follows the mood of the guru or sampraday.
 
 -----
 
