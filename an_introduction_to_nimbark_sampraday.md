@@ -10,7 +10,7 @@ _This article is work in progress..._
 
 The Sampraday also has is known by the following names: *Hamsa*, *Catuhsana*, *Kumara* or *Sanat* *sampradaya*
 
-There are a lot of mysteries that surround the Nimbark sampraday. With very little information available online and very few books available in english, the sampraday may also be difficult for people living outside of India to learn about. This article is an attempt to share a brief overview of the Nimbark sampraday from the perspective of the tradition.
+There are a lot of mysteries that surround the Nimbark sampraday. With very little information available online and very few books available in english, the sampraday may be difficult for people living outside of India to learn about. This article is an attempt to share a brief overview of the Nimbark sampraday from the perspective of the tradition.
 
 There has been quiet a bit of historical work done on the Nimbark sampraday, but it has no where received the same amount of attention as other sampradays due the samprady not having the same expansive textual traditions, vast infrastructure and buildings.
 
@@ -53,7 +53,7 @@ Amongst the main deities at Nimark Acharya peeth, Sarveshwar Prabhu, in the form
 
 ### Thakur Shri Madhav – Gokulchandramaji
 
-The deity `Gokul Chandrama ji` is installed at the Nimbarkpeeth and is mentioned in the `Shri Gopal Tapani Upanishad` of the `Atharva Veda` as an ancient deity that caused realisation of the Shri Gopal mantra. It is said that the fortunate few who obtain the darshan of this beautiful deity even once is blessed. The deity has also been worshipped by poet laureate `Shri Jayadev` the author of the famous `Gita Govinda`. 
+The deity `Gokul Chandrama ji` is installed at the Nimbarkpeeth and is mentioned in the `Shri Gopal Tapani Upanishad` of the `Atharva Veda` as an ancient deity that caused realisation of the Shri Gopal mantra. It is said that the fortunate few who obtain the darshan of this beautiful deity even once becomes blessed. The deity has also been worshipped by poet laureate `Shri Jayadev` the author of the famous `Gita Govinda`. 
 
 The history of this deity is as follows:
 
@@ -106,7 +106,7 @@ radhaamkrsnasvaroopaam vai, krishnam raadhaasvarupinam; kalaatmaanam nikunjastha
 I ceaselessly praise Radha who is none other than Krishna, and Shri Krishna who is none other than Radha, whose unity is represented by the Kaamabeeja and who are forever resident in Nikunja Goloka Vrndavana.
 ```
 
-A lot of this may sound familiar as most people are already acquainted with Gaudiya Vaishnavism. As one can see there are many similarities between the Gaudiya's and Nimbarki's. They share indentical and simalar concepts such as bhedabheda, importance of Srimad Bhagavatam, bhakti, naam jaap, tattva's, moksha and the worship of Radha and Krishna. Therefor a lot of knowledge is transferable between the sampradays. And of course there are differences as well, one example is that in the Nimbark leela, Radha and Krishna are married to each other. But it seems that the two sampradays have more things in common than in difference.
+A lot of this may sound familiar if one is already acquainted with Gaudiya Vaishnavism. As one can see there are many similarities between the Gaudiya's and Nimbarki's. They share indentical and simalar concepts such as bhedabheda, importance of Srimad Bhagavatam, bhakti, naam jaap, tattva's, moksha and the worship of Radha and Krishna. Therefor a lot of knowledge is transferable between the sampradays. And of course there are differences as well, one example is that in the Nimbark leela as described in Mahavani, Radha and Krishna are married to each other and do experience any separation from each other. But the two sampradays have more things in common than in difference.
 
 
 ## Practice/Sadhana
@@ -131,26 +131,28 @@ Rādhe Shyām Rādhe Shyām
 Shyām Shyām Rādhe Rādhe
 ```
 
-All the names of God have all of His and Her divine potencies in them and are non different to God. In this age of Kali Yuga spe
+All the names of God have all of His and Her divine potencies are in them and are non different to God.
 
 ## Moksha
 
-The type of moksha(liberation) that is focussed on in the Nimbark sampraday is a state of awareness of full individual identity and simultatous oneness with the divine couple Shri Radha Krishna, where one reside's in the eternal realm of Shri Vrindavan Dham with Shri Shyaama Shyaam Yugal Sarkar. One may attain in this life or when one leaves ones physical body an eternal spiritual body with a specific relationship with Radha and Krishna, such as becoming a servant, friend, parent, child, etc with Shri Yugal Sarkar(Radha Krishna). Other forms of moksha may also be attained, as this is ones personal choice, but generally one follows the mood of the guru or sampraday.
+The type of moksha(liberation) that is focussed on in the Nimbark sampraday is a state of awareness of full individual identity and simultatous oneness with the divine couple Shri Radha Krishna, where one reside's in the eternal realm of Shri Vrindavan Dham with Shri Shyaama Shyaam Yugal Sarkar. One may attain in this life or when one leaves ones physical body an eternal spiritual body with a specific relationship with Radha and Krishna, such as becoming a servant, friend, parent, lover,etc with Shri Yugal Sarkar(Radha Krishna). 
 
 -----
 
 ## Branches of Shri Nimbark sampraday
 
-There are 12 main branches from the Nimbark sampraday are originating from the 35th Acharya Shri Harivyas Dev Acharya's 12 main disciples, maybe 5 or 6 of these branches are still alive today. And there may be other branches such as Shri Haridas Sampraday, which are not connected to Shri Harivyas Dev acharya that are still alive.
+There are 12 main branches or lineages from the Nimbark sampraday are originating from the 35th Acharya Shri Harivyas Dev Acharya's 12 main disciples, maybe 5 or 6 of these branches are still alive today. And there may be other branches such as Shri Haridas Sampraday, which are not connected to Shri Harivyas Dev Acharya that are still alive.
 
-The two most promiment branches today connecting to Shri Harivyas dev acharya are:
+The two most promiment branches today connecting to Shri Harivyas Dev Acharya are:
 - `Shri Parashuramdevacharya Ji (36th)` -  Acharya Peeth branch.
 
 - `Svāmī Svabhūrāma Devācārya(36th)` - Which is connected to `Shri Indra Dasji Kathia Babaji Maharaj(50th)` the first Nimbarki in this line to receive the title `Kathia baba`
 
+**Kathia baba's**
+
 The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (kaupin) worn by them which indicated their renunciation of all bodily pleasures.
   
-The Kathia Baba's where originally siddha babaji's that come down from the Himalayas. This has influenced this branch with different practices of tapasya and a strong emphasis on vairagya. They normally have long dread locks and wear a thick wooden belt.
+The Kathia Baba's where originally siddha baba's with dreadlocks that come down from the Himalayas. This has influenced this branch with a strong emphasis on vairagya.
 
 The first Kathia Baba that come down from the Himalayas to start popularising the branch was `Shri Ram Das Kathia Baba(54th)`. 
 
@@ -162,12 +164,10 @@ The tilak of the Nimbark sampraday can mean two or more things:
 2. The yellow outline represents Shriji's(Radha's) charan(Lotus feet) and the black bindi between the eye brows represents Krishna.
 
 ## Sannyasi or Babaji
-The renunciates in Nimbark sampraday are known as babaji's. They do not wear saffron, they wear a white dhoti with no pleat and white or yellow shaul.
+The renunciates in Nimbark sampraday are known as babaji's. They do not wear saffron, they mostly wear a white dhoti with no pleat and white shaul, sometimes yellow may also where yellow colored cloth.
 
 ## Scripture's
 Their are many different scriptures, but the main scriptures that are focused on are: `Bhagavad Gita`, `Shrimad Bhagavatam`, `Bhakta Maal` and the rasik saints recite `Maha Vani`.
-
-There are some scholarly Nimbark ashrams that Study Sanskrit, Vedanta and Nimbarkji's scriptures. But those ashrams are few.
 
 ## Resources:
 - [The life and teachings of Shri Nimbarka Acharya](https://www.hinduismtoday.com/educational-resources/the-life-teachings-of-one-of-indias-great-luminaries-shri-nimbarka/)
