@@ -5,25 +5,29 @@ The amount of Acharyas and Mahants in the sampraday is astounding. These are jus
 ----
 <img src="images/nimbark/nimbark_bhagavaan.jpg" width=25% height=25%>
 
-### Jagad Guru Shri Nimbarkacharya Maharaj (4th) (11 century A.D or 3096 A.D [Disputed])
+### Jagad Guru Shri Nimbark Acharya (4th) (3096 bce)
 
-The Sutras of Maharishi Veda Vyasa form the basis of Vedanta. From the various interpretations of the same, four  main schools of thought emerged. The Keval Advaita of Sri Sankaracharya, the Visishta Advaita of Sri Ramanujacharya, the Dvaita philosophy of Sri Madhavacharya and the Bhedabheda or Dvaitadvaita philosophy of Sri Nimbarkacharya.  However, Sri Nimbarkacharya has been able to reconcile all the other school of thoughts and his Bhashya on the Brahma Sutras appears to pre-date all other Bashyas on the Brahma Sutras.
+Sri Nimbark Acharya appeared in different ages as mentioned in the Acharya Charitra, Naimisha Khanda, Vamana Purana and Bhavishya Purana. Once the devotees prayed to the Lord to protect them and the religious path. Then the Lord told His Sudershan Chakra,
 
-As there is no reference, comment on the other Bhashyas by Shri Nimbarkacharya.
+``` At the end of dvāpara yuga, Sudarśana will take birth, as commanded by Kṛṣṇa.
+Known as Nimbāditya, he will remove dharma’s lassitude.
+- Bhaviṣyapurāṇa, Pratisargaparvan 7.67.```
 
-Sri Nimbark Acharya is also the oldest known acharya to worship Radha along with Krishna in Sakhi Bhava Upasana method of worship.
 
-Sri Nimbarkacharya appeared in different ages. It is mentioned in Acharya Charitra, Naimisha Khanda, Vamana Purana and Bhavishya Purana. Once the devotees prayed to the Lord to protect them and the religious path. Then the Lord told His Sudershan Chakra,
+```
+sudarshana! mahabaho! koti-surya-sama-prabhah
+ajnana timirandhanam vishnor margam pradarshaya
 
-_sudarshana! mahabaho! koti-surya-sama-prabhah
-ajnana timirandhanam vishnor margam pradarshaya_
-
-_"O supreme invincible one! Powerful like millions of suns. O My supreme devotee. Show the path of Vishnu, the devotional path, to these people who are suffering in darkness due to ignorance."_
-
-As per the oral tradition and Puranic evidence's, one main sources being the Bhavishya Purana, it is stated that Nimbark Acarya incarnated in the year 3096 A.D and explains more details about the divine appearance of Sri Nimbark Acaryaji.
+"O supreme invincible one! Powerful like millions of suns. O My supreme devotee. Show the path of Vishnu, the devotional path, to these people who are suffering in darkness due to ignorance."
+```
 
 _Then Sudarshana Chakra decided to take his incarnation by the order of the Lord. He advented himself in the beginning of kali yuga, from today(2022) about 5098 years ago, in the East-South part of India on the bank of the Godavari river near the city of Vaidurya Pattan at Sudarshana Ashrama in the womb of Sadhvi Jayanti Devi, the wife of Aruna Rishi, who was in the dynasty of Bhrigu at dusk during the karttika month, Shukla Purnima. In his childhood he went on a pilgrimage with his parents and reached Vraja mandala. He performed austerities under Goverdhan hill in a village named Nimbagaon and showed the path of devotion to Radha and Krishna. Once Brahma came in the form of a renunciate in order to take the darshan of Sudarshana who was there as a small boy. Sudarshana wanted to give honour to Brahma. He showed him the darshan of Surya from the middle of a neem tree, though it was already sunset. When Brahma understood that the Lord in the form of Surya gave his darshan through a neem tree, he said, "You will be famous by the name of "Nimbarka" and disappeared._
 
+The meaning of the name "Nimbarka" is as follows: 
+```
+He was like a medicinal fruit (nimba) in curing people from the disease of the world, and he was like the sun (arka) in removing the darkness of the heart.
+- Mangala-pata, Tattva Prakashika (Shri Kesheva Kashmiri)
+```
 
 Nimbark Acarya has written the following scriptures and commentaries:
 ```
@@ -36,16 +40,43 @@ Nimbark Acarya has written the following scriptures and commentaries:
 - Daśa Śloki or Kāmadhenu– Ten Verses
 - Saviśeṣa Nirviśeṣa
 - Śrī Kṛṣṇa Stavam
+- Radhashtakam
 ```
+
+#### Shri Nimbarks date of birth contrevery 
+
+The latest research by Indological scholars (Ramnarace 2015, Malkovsky 2001, Agrawal 2000 and Satyanand 1997) has shown that it is likely that Śhrī Nimbārka lived sometime between 620-690ce, though the Nimbārka Sampradāya maintains the Bhaviṣhya Purāṇa’s statement that he incarnated on Kārtika Pūrṇimā 3096bce, six years after Bhagavān Śhrī Kṛiṣhṇa concluded His earthly pastimes. Whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
+
+The majority of rival tenets that Shri Shankar Acharya ji countered belonged to Bhedābheda (also known by the synonym Dvaitādvaita), which scholars suggest is the oldest philosophical understanding of Vedānta, a fact to which pre-eighth century Buddhist writings attest.
+
+Nimbarka,  ofcourse, criticises like other commentators, the theories of the Samkhya Yoga, etc. (V.P.S. 2.2), but he makes no attempt at criticising
+other schools of the Vedanta.
+
+```
+Due to the statement of Śrī Vyāsa in the Bhaviṣyapurāṇa, in which Śrī Nimbārka is
+omniscient in as much as he is addressed as ‘Bhagavat’, and thus is the most ancient of all
+the [other Vedānta-]ācāryas…’ 
+- Bhagavadgītā Tattvaprakāśikā introduction, ch. 1. - Shri Kesheva Kashmiri
+```
+
+
+
+In records of land grants of the fifth century CE, verses are quoted which occur only in the Padma, Bhavishya, and Brahma Puranas. This gives us more evidence that the  
+As the current version of the Bhavisyapurana seems to be a very recent version 
+
+How surviving manuscripts of Bhavishya Purana are neither the ancient nor a medieval version of some original Bhavishya Purana.
+
 
 -----
 <img src="images/nimbark/srinivas_acharya.jpg" width=20% height=20%>
 
 ### Shri Shrinivasacharyaji Maharaj (5th)
 
-Shri Shrinivasacharyaji Maharaj, the foremost disciple of Shri Nimbarkacharya, who wrote a masterly analysis of the Vedanta Parijata Sourabh, composed by his Guru, named `Vedanta Koustubh Bhashya`.
+Shri Shrinivasacharyaji Maharaj, the foremost disciple of Shri Nimbarkacharya, he is known as the Shank avatar, or the incarnation of the Panchajaya, the conch shell of Vishnu.
 
-There are many other holy works besides this, of which only `Laghustavaraja` is also well known work. `Parijat Saurabh Bhashya`, `Rahasya Prabandha`, `Kathopanishad Bhashya` etc. are unavailable.
+He who wrote a masterly analysis of the Vedanta Parijata Sourabh, composed by his Guru, named `Vedanta Koustubh Bhashya`.
+
+There are many other holy works besides this, of which only `Laghu Stavaraja` is avalable, it is a collection of forty-one verses in praise of Shri Nimbark. `Parijat Saurabh Bhashya`, `Rahasya Prabandha`, `Kathopanishad Bhashya` etc. are unavailable.
 
 -----
 ### Shri Purushottamacharyaji (7th)
@@ -55,7 +86,7 @@ The `Vedanta Kamadhenu Dashashloki` composed by Shri Nimbarkacharya was further 
 -----
 <img src="images/nimbark/sri_keshav_bhatt_acharya.jpg" width=20% height=20%>
 
-### Shri KeshavKashmiri Bhattacharyaji Maharaj (33rd)(Around 1420-1490)
+### Shri Keshava Kashmiri Bhattacharyaji Maharaj (33rd)(Around 1420-1490)
 
 He was renowned scholar through out india and was also known as Digvijay (Who is victorious over everyone) by being victorias in his debates throughout India.
 
@@ -167,10 +198,3 @@ ancient sage.
 
 *Edit*
 Though in the writings of Swami Haridas and His close associates do not mention any link to the Nimbark Sampraday. We accept this on the basis of the oral tradition from both the Nimbark and Haridas Sampraday, as all the main acharya's within both sampradays accept this theory and the two sampradays and their acharyas have a very close relationship with each other.
-
-
-Gori Lal 
-
-Found in Nidivan,
-Rasik Bihari
-Rasik Bihari Ji
