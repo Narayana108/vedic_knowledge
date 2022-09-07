@@ -30,7 +30,7 @@ According to tradition, Narada Muni initiated Śrī Nimbārk ācārya into the s
 
 ## History
 
-Please see [History and Nimbark Acharyas](./History_and_nimbark_acharyas.md).
+Please see [History and Nimbark Acharyas](./history_and_nimbark_acharyas.md).
 
 
 ## Philosophy
