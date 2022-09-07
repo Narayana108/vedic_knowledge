@@ -20,65 +20,28 @@ The sampraday has also given major contributions to India's rich culture and her
 
 
 ## Origin
+
 <img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
 
 The Sampraday originates from Śrī Hansa Bhagavān to Shri Sankadi Bhagavān (The Four Kumaras), who passed it to their younger brother Shri Narada Muni; and then on to Shri Nimbarka Acharya ji. 
 
 According to tradition, Narada Muni initiated Śrī Nimbārk ācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
 
+
 ## History
 
-The Nimbark sampraday is the most ancient living vaishnav sampraday. Though some modern scholars try dispute this due to lack of evidence, but they themselves present many varying timelines all very far apart with very little evidence to support their own claims, which is ironic, because this falls into the same fallacy that they use against the tradition.
-
-Though there are also many other scholars such as Dr. Brahmachari Vrajvihari Sharan, Satyanand Joseph, Prof. Rasik Bihari Joshi, Prof. M. M. Aggrawal, etc . That state that Shri Nimbarks time period to be at least of the same time or before the appearance of Shankaracharya.
-
-Many indologists have underlined the fact that history has not been kind to the Nimbārka Sampradāya. Nevertheless, the tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
-
-Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also especially in the early days, the esoteric knowledge of Shri Radha and the Yugal maha mantra was kept secret. This lead to the sampraday slowly diminishing and towards the 15th century it was almost lost, having a very small following only. But fortunately the sampraday was revived and widespread during the 15th and 16th century by Shri Harivyas dev acharya and his 12 main disciples.
-
-While the sampraday was at its smallest numbers during the 11th till 15th century time period, the destruction of Mathura and Vrindavan occurred multiple times, and unfortunately many important scriptures of the Nimbark sampraday has been lost.
-
-The rest of the history can be found here: [Nimbark Acharyas](./nimbark_acharyas.md).
-
-----
-
-<img src="images/nimbark/shaligram_shila.jpg" width=25% height=25%>
-
-### Shri Sarveshvar Prabu
-
-Amongst the main deities at Nimark Acharya peeth, Sarveshwar Prabhu, in the form of a Shaligram is the most auspicious and is one of a kind deity. As this Shaligram has been worshipped over the ages from the Sanaka brothers, Devarishi Narad, Jagatguru Shri Nimark Acharya and all the following Acharyas of the Nimark Acharya peeth. Wherever the acharyas proceed Sarveshvar Prabhu is always with the Acharya.
-
-
----- 
-
-<img src="images/nimbark/thakur_sri_madhav.jpg" width=25% height=25%>
-
-### Thakur Shri Madhav – Gokulchandramaji
-
-The deity `Gokul Chandrama ji` is installed at the Nimbarkpeeth and is mentioned in the `Shri Gopal Tapani Upanishad` of the `Atharva Veda` as an ancient deity that caused realisation of the Shri Gopal mantra. It is said that the fortunate few who obtain the darshan of this beautiful deity even once becomes blessed. The deity has also been worshipped by poet laureate `Shri Jayadev` the author of the famous `Gita Govinda`. 
-
-The history of this deity is as follows:
-
-After a few years after the passing away of `Shri Jayadev`, the idol was installed at Shri Nimark Acharya peeth at Shri Radha Kund, Vrindavan. Shri Govind Sharana Devacharya, the then acharya of the Nimark Acharya peeth, received instructions from Shri Radha Madhav to embark on the acharya’s rath (carriage) with the deity to Salemabad, Rajasthan. As instructed the Acharya proceeded on the rath to Salemabad. Enroute at Bharatpur, the entrouge rested for after seva of pulling the rath, the residents of vraj pleaded with the Acharya not to take away the deity to Salemabad and return to return it to braj. The Acharya explained that it is the instructions of Shri Radha Madhav, therefor he is just as helpless as them. The people approached the ruler of Bharatpur, who told the protestors that if they could pull the rath back to braj and if the Lord is willing, then He had no objections. 
-
-Try as they may, the residents of vraj, could not move the rath even one inch. However, after the seva, when the Acharya, pleaded for the rath to move and asked the devotees to pull to the astonishment of all devotees, the rath moved and proceeded to Salemabad, where the deity is curruntly installed in the temple at the centre of the Nimbark Acharya peeth.
-
-
-### Related articles
-- [Origines of the Ras Lila Tradition](https://a108.net/blogs/entry/15339-karhala-village-origin-of-the-raas-lila-tradition/)
-
-- [Ancient Nimbark temple, 350 - 400 years old](https://a108.net/blogs/entry/38005-nimbark-temples-of-chhipi-gali-nimbark-kot-ajab-manohar-lal/)
+Please see [History and Nimbark Acharyas](./History_and_nimbark_acharyas.md).
 
 
 ## Philosophy
 
 <img src="images/nimbark/Nimbarka-1-_1.jpg" width=80% height=80%>
 
-The Sutras of Maharishi Veda Vyasa form the basis of Vedanta and has a large body of sacred texts. These sutras describe different aspects of the Absolute and as a result various interpretations and schools of thought emerged, the four main schools of thought are: The Keval Advaita of Sri Sankaracharya, the Visishta Advaita of Sri Ramanujacharya, the Dvaita philosophy of Sri Madhavacharya and the Bhedabheda or Dvaitadvaita philosophy of Sri Nimbarkacharya.  
+The Sutras of Maharishi Veda Vyasa form the basis of Vedanta and has a large body of sacred texts. These sutras describe different aspects of the Absolute and as a result various interpretations and schools of thought emerged, such as: Keval Advaita of Sri Sankaracharya, Visishta Advaita of Sri Ramanujacharya, Dvaita of Sri Madhavacharya, etc.  
 
-Shri Nimbark Acharyaji is the sampraday Acharya and established the siddhanta known as `Svabhavika Bhedabheda` `(Natural difference and non-difference)` or `Dvaitadvaita` `(Dualistic Non-Dualism)`. This philosophy has been able to reconcile and all other schools of thought and contridictory statements in the sutras.
+Shri Nimbark Acharyaji established the siddhanta(philosophy) known as `Svabhavika Bhedabheda` `(Natural difference and non-difference)` or `Dvaitadvaita` `(Dualistic Non-Dualism)`.
 
-The jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
+This philosophy has been able to reconcile all other schools of thought and the so called contradictory statements of the Vedas. Bhedadheda means that the jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
 
 According to Shri Nimbark Acharya, the relation between Brahman and the jiva is like a tree and its branches. The branches have all qualities of the tree, but the branches are not the tree as a whole. Likewise jiva is anu (small) having all qualities like Brahman(bibhu-large), but with limited extent. Brahman resides in the heart of jiva, but jiva has no realization due to Maya (illusion). This is the basic idea of `Dvaitadvaita` siddhanta.
 
@@ -100,7 +63,7 @@ For the followers of Shri Nimark Acharya they should only worship Shri Radha alo
 
 Shri Nimbark Acharya held the view that there is no superiority between Radha and Krishna, both are God (Parabrahman). 
 
-Even though Shri Nimbark Acharya ji was a vedantist and incarnated to spread the worship of Radha Krishna for the general people, he has different moods and multiple spiritual identities other than only being the avatar of Shri Sudarshan Chakra. His inner mood was that of sakhi bhava upasana, which is a very high level and esoteric form of worship which is not suitable for the general public, this style of worship has been maintained through the parampara up until this very present day.
+Even though Shri Nimbark Acharya ji was a vaishnava vedantist and incarnated with the purpose to spread the worship of Radha Krishna for the general masses, He has different moods and multiple spiritual identities other than being an avatar of Shri Sudarshan Chakra. His inner mood was that of sakhi bhava upasana, which is a very high level and esoteric form of worship which is not suitable for the general public, this style of worship has also been maintained through the parampara up until this very present day.
 
 ```
 Ange Tu Vame Vrishbhanujam Muda, Virajmanamnurup Saubhgaam
@@ -123,14 +86,25 @@ A lot of this may sound familiar if one is already acquainted with Gaudiya Vaish
 ## Practice/Sadhana
 
 Here are the 5 limbs of the sadhana that is performed within the tradition:
-1. Karma (ritual action);
-2. Vidyā (knowledge);
-3. Upāsanā or dhyāna (bhakti and meditation);
+1. Karma (ritual action)
 
-There are different types of Meditiations given by Shri Nimbark Acharya, but to my knowledge these meditations aren't practised that often and more emphasizes is given on:
-- **Naam Japa** or the chanting the Holy Names.
+Performed conscientiously in a proper spirit, with one's varna and asrama (phase of life) thereby giving rise to knowledge which is a means to salvation).
 
-Nimbark sampraday's favourite mantra is the `Yugal maha mantra` or `Radha Krishna maha mantra`: 
+2. Vidyā (knowledge)
+
+Not as a subordinate factor of karma, but also not as an independent means for everyone; only for those inclined to spending vast lengths of time in scriptural study and reflection on deeper meanings.
+
+3. Upāsanā or dhyāna (meditation)
+
+This is again not an independent means to Salvation for all, as only those qualified to perform the upasana (with Yajnopavitam or diksha) can perform this Sadhana.
+
+4. Prapatti (surrender to the Lord/devotion)
+
+Devotion and self-surrender to God as Shri Radha Krsna. This method of attaining Salvation, known as Prapatti Sadhana, contains elements of all the other means, and is most importantly, available to all. Men, women, all classes and castes (or non-castes) are permitted to seek liberation through this, **the most important Sadhana**. It is referred to as Sadhana (or Apara) Bhakti – devotion through regulations. This in turn leads to Para Bhakti – the highest devotion characterised by Madhurya Rasa – the sweet emotions of devotion experienced by those perfected in Sadhana Bhakti.
+
+- **Naam Japa** the chanting the Holy Names is also extremely important.
+
+Nimbark sampraday's maha mantra is called the `Yugal maha mantra` or `Radha Krishna maha mantra`: 
  
 ```
 Rādhe Kṛṣṇa Rādhe Kṛṣṇa
@@ -143,15 +117,28 @@ Shyām Shyām Rādhe Rādhe
 The most important factor in this Age of Kali, which is an ocean of faults, is that one can be free from all contamination and become eligible to enter the kingdom of God simply by chanting the holy names. The self-realization that was achieved in the Satya millennium by meditation, in the Treta millennium by the performance of different sacrifices, and in the Dvapara millennium by worship of Lord Krsna can be achieved in the Age of Kali simply by chanting the holy names. - Srimad Bhagavatam (12.3.51-2)
 ```
 
-- **Roop dhyaan**, meditation on the forms of Sri Radha Krishna and their divine activities's, this is considersed to be a higher form of meditation.
-
-4. Prapatti (surrender to the Lord/devotion);
 5. Gurupasatti (devotion and self-surrender to God as Śrī Rādhā Kṛṣṇa)
 
-Even though all 5 limbs are important and required in the body of the Nimbarki sadhana to attain moksha(salvation). Special attention is given towards _Gurupasatti Yoga_. According to Shri Nimbark, The jiva can attain salvation by grace of the Guru. If one follows the instructions of his/her Guru in an  unopposed manner he/she can attain Moksha without observing any other rituals. 
+Devotion and self-surrender to guru. Best realised as a part in Prapatti, and not as an independent means, although it can be so.
 
 
-## Moksha (Liberation) - Residency in Vrindavan Dham
+## Moksha (Liberation) 
+
+The jiva(individual soul) is covered in beginingless ignorance and is trapped in the material world, suffering all kinds of meseries such as duality, birth, death, disease, old age, etc.
+
+Salvation is attained by real knowledge (Jnana) and true devotion (Bhakti). Real knowledge reveals the true nature of the all-pervading Brahman. True devotion leads to total self-surrender to the Lord. The individual soul retains its individuality with reference to divine enjoyment (Bhoga-samyatvam), but its will is subservient to that of Brahman. The individuality of the soul is not dissolved even in the state of Moksha or the final emancipation. Even in the state of release, the individual soul is different from, as well as identical with, Brahman. This is identity with difference, Bheda-abheda
+
+It is released from its previous state of bondage. It abides now in the glory of its own true Self which is Brahman Itself. It is in full awareness or consciousness of being one with the Lord. It will not return to the world. It is freed from the round of births and deaths.
+
+There are different types of liberation. Such as the jiva merging into brahman, where the jiva is in a nirguna(devoid of all characteristics and qualities) state situated in bliss.
+
+### What happens when one liberated ?
+
+1. Attaining the qualities of Shri Krishna
+
+ The jiva(individual soul) posses the qualities of Bhagavaan, but never has the power over creation, preservation and dissolution of the world. The Jiva is also subject to being overpowerd by maya if it has not attained knowledge of Para Brahman. The difference between jiva and Bhagavaan(God) is not in kind, but in degree.
+
+2. Residency in Vrindavan Dham
 
 The type of liberation that is focused on within the Nimbark sampraday is to attain residency in the eternal spiritual realm called Vrindavan. 
 
@@ -189,16 +176,22 @@ About 35 important temples located at Vrindavan, Ajmer, Kishangad, Indore, Shola
 
 I would guess that there are more than 20 Kathia Baba temples in Vrindavan, Haridvar, Puri, Dvarka, Ashok Nagar, Guwahati, Tinsukia, Siliguri, Lona Chamiyari, Kolkatta, Madya Pradesh, Kashi, and other areas in north India. And they also have additional charity instututions such as healthcare, libraries, schools, etc.
 
-- Other branches - They also have a good amount of temples including large temples in different areas of North India and charity institutions.
+- Other branches - They have numerous amounts of temples including large ones in different areas of North India and charity institutions.
+
+The sampraday operates in a decentrilized manner and the temple(s) is run according to the standard and style of the present Mahant. Even though each temple(s) under a certain Mahant and are independant, the unity between all the Nimbarki's is astounding, especially since there are slight differents in bhav(mood) towards Radha Krishna.
+
+<img sarc="images/nimbark/kathia_baba.jpg" width=20% height=20%>
+
+---- 
+
+<img src="images/nimbark/avadh_behari_das_kathia_baba_painting_2.jpg" width=30% height=30%>
 
 **Kathia baba's**
 
-The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (kaupin) worn by them which indicated their renunciation of all bodily pleasures. 
+The saints were called Kathia Baba Maharaj by the common people due to the very unique thick wooden belt (kath) and white piece of cloth (kaupin) worn by them which indicated their renunciation of all bodily pleasures. Matting the hair in dreadlocks (jata) is apart of the tradition.
 
-  
-The Kathia Baba's where originally siddha baba's with dreadlocks that lived in the Himalayas. This has influenced this branch with a strong emphasis on vairagya.
+The Kathia baba's used to practise in seclusion in the himalays, but the first Kathia Baba that come down from the Himalayas and popularised this branch was `Shri Ram Das Kathia Baba(54th)`. 
 
-The first Kathia Baba that come down from the Himalayas to start popularising the branch was `Shri Ram Das Kathia Baba(54th)`. 
 
 ## Tilak
 The tilak of the Nimbark sampraday can mean two or more things:
@@ -231,6 +224,8 @@ Their are many different scriptures, but the main scriptures that are focused on
 
 - [Brief History of Nimbark Sampraday](https://www.liquisearch.com/radha_krishna/nimbarka_sampradaya)
 
+- [Nimbark darshan](https://spiritualdarshan.in/)
+
 ## Books and papers
 - [Nimbark Parijata Saurbha Vol III - Roma Bose](https://archive.org/details/in.ernet.dli.2015.188129)
 
@@ -240,5 +235,3 @@ Their are many different scriptures, but the main scriptures that are focused on
 
 _vanchha kalpatarubhyashcha kripa sindhubhya eva cha
 patitanam pavanebhyo vaishnavebhyo namo namah_
-
-lokah samastah sukhino bhavantu: may all beings everywhere be happy and free and may the thoughts, words, and actions of my own life contribute in some way to that happiness and to that freedom for all 

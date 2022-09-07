@@ -1,6 +1,13 @@
+## History
+
+Many indologists have underlined the fact that history has not been kind to the Nimbārka Sampradāya. Nevertheless, the tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
+
+Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also especially in the early days, the esoteric knowledge of Shri Radha and the Yugal maha mantra was kept secret. This lead to the sampraday slowly diminishing and towards the 15th century it was almost lost, having a very small following only. But fortunately the sampraday was revived and widespread during the 15th and 16th century by Shri Harivyas Dev acharya and his 12 main disciples.
+
+
 ## Acharya's
 
-The amount of Acharyas and Mahants in the sampraday is astounding. These are just most of the historically significant Guru Maharaj's.
+The amount of Acharyas and Mahants in the sampraday is astounding. These are just most of the historically significant Guru's.
 
 ----
 <img src="images/nimbark/nimbark_bhagavaan.jpg" width=25% height=25%>
@@ -11,7 +18,8 @@ Sri Nimbark Acharya appeared in different ages as mentioned in the Acharya Chari
 
 ``` At the end of dvāpara yuga, Sudarśana will take birth, as commanded by Kṛṣṇa.
 Known as Nimbāditya, he will remove dharma’s lassitude.
-- Bhaviṣyapurāṇa, Pratisargaparvan 7.67.```
+- Bhaviṣyapurāṇa, Pratisargaparvan 7.67.
+```
 
 
 ```
@@ -43,7 +51,7 @@ Nimbark Acarya has written the following scriptures and commentaries:
 - Radhashtakam
 ```
 
-#### Shri Nimbarks date of birth contrevery 
+#### Shri Nimbarks date of birth contraversy 
 
 The latest research by Indological scholars (Ramnarace 2015, Malkovsky 2001, Agrawal 2000 and Satyanand 1997) has shown that it is likely that Śhrī Nimbārka lived sometime between 620-690ce, though the Nimbārka Sampradāya maintains the Bhaviṣhya Purāṇa’s statement that he incarnated on Kārtika Pūrṇimā 3096bce, six years after Bhagavān Śhrī Kṛiṣhṇa concluded His earthly pastimes. Whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
 
@@ -144,6 +152,10 @@ Sri Nagaji Maharaji is famed as the initiator of the famous Braja 84 Kos Parikra
 
 Yogiraj Swami Ramdas Kathia Baba Maharaj, was a self-realised saint who personified supreme devotion and wisdom. He would revel in the divine vison of the Yugal Sarkar every moment, but his outward eccentric attitude and childlike demeanour would never reveal His greatness. Lucky few could fathom the depth of His spiritual splendour by solely His grace. He was highy revered in the Vaishnava community and Sadhu samaj as a whole and was bestowed with the title of Brajabidehi, Chatur Sampraday Mahant. It is said that after Sri Kathia Baba left his mortal body, tears flowed continuously for 13 days from the stone idol of Srimati Radharani ji. It was so bad that the stone eyes of the idol had to be replaced with a new pair.
 
+In the opinion of many sadhus of his time including Shri Bijoy Krishna Goswami Babaji from Guadiya, Shri Kathia Babaji Maharaj was a sage on par with Sri Garga Muni and Sri Narada.
+
+That saint was the 54th Acharya of our community, Sri Sri 108 Swami Devdasji Kathia Babaji Maharaj. Sri Sri Devdasji Maharaj was a great man of Yogishwar Siddha. He was buried in Ekasan for six months and had nothing to eat even though he was not in the grave. After taking sannyasa, Kathia's father was named "Ramdas". From the time of Guru's presence, he was fully engaged in Guruseva. His guru started teaching him astanga yoga, all kinds of mantras and their application method with Hatha Yoga. Gurudev, however, did not make the mistake of testing the disciple from time to time. Sometimes he would starve, sometimes he would have a very tasty meal, sometimes he would test Sri Sri Ramdasji with inaudible abuse or beatings for no reason. Once Sri Sri Devdasji showed him a seat and asked him to sit there, instructing him, "You will sit here in this seat until I come back. Don't leave your seat and go anywhere else. " Gurudev came eight days later. Sri Ramdasji sat in that seat for eight consecutive days, did not eat anything, nor did he defecate. When Gurudev returned on the eighth day, Sri Ramdasji got up from his seat and prostrated himself before Gurudev. Seeing this devotion and determination towards obeying his guru, Gurudev was very pleased and said, "In this way one has to obey the guru's orders. God is pleased when the Guru's orders are obeyed wholeheartedly. "came to Vrindavan and made his first monastery there. He was succeeded by Swami Santadas Kathiababa
+
 
 -----
 <img src="images/nimbark/55-sri-swami-santadas-kathia-baba-maharaj.jpg" width=20% height=20%>
@@ -188,13 +200,51 @@ ancient sage.
 
 ### Shri Jayadev Goswami(48th)
 
-`Sri Jayadev Goswami` who wrote the immaculate sanskrit poem called `Gita Govinda`.
+`Sri Jayadev Goswami` who wrote the immaculate sanskrit poem called `Gita Govinda`. Shri Jayadev Goswamis deity is still being worshipped today in the Nimbark Acharya Peeth Mandir, history about the deity can be read here: [gokul chandrama ji](#thakur-shri-madhav-\--gokul-chandrama-ji)
+
 
 -----
 <img src="images/nimbark/swami_haridas.jpg" width=20% height=20%>
 
 ### Swami Haridas
+
 `Swami Haridas` who founded the `Sri Haridas sampraday` is connected to a branch of the Nimbark sampraday that is coming from the 16th Acharya `Sri Devacharyaji`
 
-*Edit*
+The two sampradays get along very well and see each other as being apart of the same family.
+
 Though in the writings of Swami Haridas and His close associates do not mention any link to the Nimbark Sampraday. We accept this on the basis of the oral tradition from both the Nimbark and Haridas Sampraday, as all the main acharya's within both sampradays accept this theory and the two sampradays and their acharyas have a very close relationship with each other.
+
+## History
+----
+
+<img src="images/nimbark/shaligram_shila.jpg" width=25% height=25%>
+
+### Shri Sarveshvar Prabu (Radha Krishna Shaligram Shila)
+
+Amongst the main deities at Nimark Acharya peeth, Sarveshwar Prabhu, in the form of a Shaligram is the most auspicious and is one of a kind deity. 
+
+This is a Shaligram deity of Shri Radha Krishna's combined form which has been worshipped for ages by the Sanaka brothes, Narada Muni, Nimbark Bhagavan and all the succeeding Acharyas of the Nimbark Achaya peeth.
+
+Wherever the acharyas proceed Sarveshvar Prabhu is always with the Acharya.
+
+
+---- 
+
+<img src="images/nimbark/thakur_sri_madhav.jpg" width=25% height=25%>
+
+### Thakur Shri Madhav - Gokul Chandrama ji
+
+The deity `Gokul Chandrama ji` is installed at the Nimbarkpeeth and is mentioned in the `Shri Gopal Tapani Upanishad` of the `Atharva Veda` as an ancient deity that caused realisation of the Shri Gopal mantra. It is said that the fortunate few who obtain the darshan of this beautiful deity even once becomes blessed. The deity has also been worshipped by poet laureate `Shri Jayadev` the author of the famous `Gita Govinda`. 
+
+The history of this deity is as follows:
+
+After a few years after the passing away of `Shri Jayadev`, the idol was installed at Shri Nimark Acharya peeth at Shri Radha Kund, Vrindavan. Shri Govind Sharana Devacharya, the then acharya of the Nimark Acharya peeth, received instructions from Shri Radha Madhav to embark on the acharya’s rath (carriage) with the deity to Salemabad, Rajasthan. As instructed the Acharya proceeded on the rath to Salemabad. Enroute at Bharatpur, the entrouge rested for after seva of pulling the rath, the residents of vraj pleaded with the Acharya not to take away the deity to Salemabad and return to return it to braj. The Acharya explained that it is the instructions of Shri Radha Madhav, therefor he is just as helpless as them. The people approached the ruler of Bharatpur, who told the protestors that if they could pull the rath back to braj and if the Lord is willing, then He had no objections. 
+
+Try as they may, the residents of vraj, could not move the rath even one inch. However, after the seva, when the Acharya, pleaded for the rath to move and asked the devotees to pull to the astonishment of all devotees, the rath moved and proceeded to Salemabad, where the deity is curruntly installed in the temple at the centre of the Nimbark Acharya peeth.
+
+
+### Related articles
+- [Origines of the Ras Lila Tradition](https://a108.net/blogs/entry/15339-karhala-village-origin-of-the-raas-lila-tradition/)
+
+- [Ancient Nimbark temple, 350 - 400 years old](https://a108.net/blogs/entry/38005-nimbark-temples-of-chhipi-gali-nimbark-kot-ajab-manohar-lal/)
+
