@@ -21,7 +21,6 @@ Known as Nimbāditya, he will remove dharma’s lassitude.
 - Bhaviṣyapurāṇa, Pratisargaparvan 7.67.
 ```
 
-
 ```
 sudarshana! mahabaho! koti-surya-sama-prabhah
 ajnana timirandhanam vishnor margam pradarshaya
@@ -37,7 +36,7 @@ He was like a medicinal fruit (nimba) in curing people from the disease of the w
 - Mangala-pata, Tattva Prakashika (Shri Kesheva Kashmiri)
 ```
 
-Nimbark Acarya has written the following scriptures and commentaries:
+Nimbark Acarya has written the following works and commentaries:
 ```
 - Vedānta Pārijāta Saurabha– Commentary on the Brahma Sutras
 - Sadācāra Prakāśa– Commentary on the Bhagavad-Gītā
@@ -55,25 +54,47 @@ Nimbark Acarya has written the following scriptures and commentaries:
 
 The latest research by Indological scholars (Ramnarace 2015, Malkovsky 2001, Agrawal 2000 and Satyanand 1997) has shown that it is likely that Śhrī Nimbārka lived sometime between 620-690ce, though the Nimbārka Sampradāya maintains the Bhaviṣhya Purāṇa’s statement that he incarnated on Kārtika Pūrṇimā 3096bce, six years after Bhagavān Śhrī Kṛiṣhṇa concluded His earthly pastimes. Whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
 
-The majority of rival tenets that Shri Shankar Acharya ji countered belonged to Bhedābheda (also known by the synonym Dvaitādvaita), which scholars suggest is the oldest philosophical understanding of Vedānta, a fact to which pre-eighth century Buddhist writings attest.
-
-Nimbarka,  ofcourse, criticises like other commentators, the theories of the Samkhya Yoga, etc. (V.P.S. 2.2), but he makes no attempt at criticising
+Shri Nimbark ji, ofcourse, criticises like other commentators, the theories of the Samkhya Yoga, etc. (V.P.S. 2.2), but he makes no attempt at criticising
 other schools of the Vedanta.
 
+There are many rival tenets that Shri Shankar Acharya ji countered belonged to Bhedābheda (also known by the synonym Dvaitādvaita), which scholars suggest is the oldest philosophical understanding of Vedānta, a fact to which pre-eighth century Buddhist writings attest.
+
+
+#### Bhavisya purana contraversy
+
 ```
+sudarśano dvāparānte kṛṣṇājñapto janiṣyati | nimbāditya iti khyāto dharmaglānir hariṣyati ||
+Bhaviṣyapurāṇa, Pratisargaparvan 7.67.
+
+At the end of dvāpara yuga, Sudarśana will take birth, as commanded by Kṛṣṇa.
+Known as Nimbāditya, he will remove dharma’s lassitude.
+```
+
+The available versions of Bhavishya Purana are based on a printed text published during the British colonial era (1858 to 1947).
+
+In records of land grants of the 5th century CE, verses are quoted which occur only in the Padma, Bhavishya, and Brahma Puranas. This gives us more evidence that the current version of the Bhavisyapurana seems to be a very recent version.
+
+Therefor many scholars do not accept statements from the modern Bhavisya purana as evidence and the original version seems to be lost.
+
+Shri Keśava Kashmiri and the later authors of this tradition utilised the statement of the Bhaviṣyapurāṇa as an authoritative basis for their assumptions.
+
+```
+bhaviṣyapurāṇe śrīvyāsavacanāc chrīnimbārkācāryasyaiva bhagavac-chabdābhihitatvena
+sarvajñatvāt sarvebhyaḥ prācīnācāryāc ca…|| Bhagavadgītā Tattvaprakāśikā introduction, ch. 1.
+
 Due to the statement of Śrī Vyāsa in the Bhaviṣyapurāṇa, in which Śrī Nimbārka is
 omniscient in as much as he is addressed as ‘Bhagavat’, and thus is the most ancient of all
 the [other Vedānta-]ācāryas…’ 
 - Bhagavadgītā Tattvaprakāśikā introduction, ch. 1. - Shri Kesheva Kashmiri
 ```
 
+As Shri Keshava is references an ancient version of the Bhavishya Purana. This adds validity that the information about Shri Nimbark Acharya in the Bhavisha purana is true, unfortuntly the exact date was not given by Shri Keshava Kashmiri.
 
+The interpolations other than the date of birth for Shri Nimbark Acharya can serve no purpose to the sampraday, and these interpolations happened after the above quote. If the Bhavisya Purana of Shri Keshava Kashmiri accepted Shri Nimbark as the oldest Acharya, then what is the point to add extra years to make Shri Nimbark Acharya even older? Going through all that trouble for such a tiny change, for such little gain does not sound logical to me.
 
-In records of land grants of the fifth century CE, verses are quoted which occur only in the Padma, Bhavishya, and Brahma Puranas. This gives us more evidence that the  
-As the current version of the Bhavisyapurana seems to be a very recent version 
+Also the sampraday has never used the date of Shri Nimbark Acharya as a preaching point. And it was only after Shri Keshava Kashmiri that the sampraday got riveved and widespread by Shri Harivyas Dev acharya. And there was no propoganda needed for a well known Siddha Babaji that has no contriversies and was accepted by all sampradays in Vrindavan. Infact the Nimbarkis especially during that time period where not big preachers, but rather spent their time relishing their spiritual pracises in reclusion.
 
-How surviving manuscripts of Bhavishya Purana are neither the ancient nor a medieval version of some original Bhavishya Purana.
-
+Without the statement of the Bhavisya Purana it is stil clear that Shri Nimbark Acharya is the oldest known Vedantist. Therefor the Nimbarki's holds that the history about Nimbark Acharyas life and datings in the Bhavisya Purana to be true as per the oral tradition.
 
 -----
 <img src="images/nimbark/srinivas_acharya.jpg" width=20% height=20%>

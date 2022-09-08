@@ -178,7 +178,7 @@ I would guess that there are more than 20 Kathia Baba temples in Vrindavan, Hari
 
 - Other branches - They have numerous amounts of temples including large ones in different areas of North India and charity institutions.
 
-The sampraday operates in a decentrilized manner and the temple(s) is run according to the standard and style of the present Mahant. Even though each temple(s) under a certain Mahant and are independant, the unity between all the Nimbarki's is astounding, especially since there are slight differents in bhav(mood) towards Radha Krishna.
+The sampraday operates in a decentrilized manner and the temple(s) is run according to the standard and style of the present Mahant. Even though the temple(s) under a certain Mahant and are independant, the unity between all the Nimbarki's is astounding.
 
 <img sarc="images/nimbark/kathia_baba.jpg" width=20% height=20%>
 
