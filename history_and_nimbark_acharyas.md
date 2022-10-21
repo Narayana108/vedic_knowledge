@@ -48,19 +48,85 @@ Nimbark Acarya has written the following works and commentaries:
 - Saviśeṣa Nirviśeṣa
 - Śrī Kṛṣṇa Stavam
 - Radhashtakam
+- Kṛṣṇāṣṭakam
 ```
 
-#### Shri Nimbarks date of birth contraversy 
+### Shri Nimbarks date of birth contraversy 
 
-The latest research by Indological scholars (Ramnarace 2015, Malkovsky 2001, Agrawal 2000 and Satyanand 1997) has shown that it is likely that Śhrī Nimbārka lived sometime between 620-690ce, though the Nimbārka Sampradāya maintains the Bhaviṣhya Purāṇa’s statement that he incarnated on Kārtika Pūrṇimā 3096bce, six years after Bhagavān Śhrī Kṛiṣhṇa concluded His earthly pastimes. Whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
+The latest research by Indological scholars (Ramnarace 2015, Malkovsky 2001, Agrawal 2000 and Satyanand 1997) has shown that it is likely that Śhrī Nimbārka lived sometime between **620-690ce**, though the Nimbārka Sampradāya maintains the Bhaviṣhya Purāṇa’s and the Ācāryacaritam of Nārāyaṇaśaraṇa Deva (r.1700-1754CE) statements that He incarnated on Kārtika Pūrṇimā 3096bce, six years after Bhagavān Śhrī Kṛiṣhṇa concluded His earthly pastimes. Whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
 
-Shri Nimbark ji, ofcourse, criticises like other commentators, the theories of the Samkhya Yoga, etc. (V.P.S. 2.2), but he makes no attempt at criticising
+Shri Nimbark ji, ofcourse, criticises like other schools of thought (V.P.S. 2.2), but he makes no attempt at criticising
 other schools of the Vedanta.
 
 There are many rival tenets that Shri Shankar Acharya ji countered belonged to Bhedābheda (also known by the synonym Dvaitādvaita), which scholars suggest is the oldest philosophical understanding of Vedānta, a fact to which pre-eighth century Buddhist writings attest.
 
 
-#### Bhavisya purana contraversy
+*A pre-Śaṁkara bhāṣya has, therefore, a two-fold characteristic. First of all, a pre-Śaṁkara
+bhāṣyakāra is unaware of the points that Śaṁkara raises against his doctrines. Secondly, a
+pre-Śaṁkara bhāṣyakāra is also unaware of the typical Śaṁkarite doctrines such as
+Brahmavivartavāda, Avidyāvāda, Pratibimbavāda etc. against which he is unable to raise
+any objections, since he is anterior to Śaṁkara. Among the extant vṛttis on the
+Brahmasūtras, the [Vedāntapārijāta-]Saurabha alone has this double characteristic.*
+
+Because the brahmsutra refutes many ideologies including so called buddhist ideals, one also here has to deep research to see if there is suffienct evidence to stronger prove the author and the time peroid it was written in. 
+
+
+He explains the mention of different philosophies and their criticism in the Brahma Sutra as refutations of general ideas, which are eternal. And not specific schools of thought like Buddhism etc. So, there is no necessary to assign a later date.
+
+```
+Satyanand concedes that at times the Bhedābheda pūrvapakṣin who Śaṅkara attempts to
+contradict may in fact represent a broad tradition of Bhedābheda views rather than the
+position of a solitary thinker. In such cases it is impossible to conclude whether Śaṅkara is
+drawing exclusively, or at all, on the VPS. However, at times the language and arguments
+used by Śaṅkara to articulate the Bhedābheda position are sufficiently close to what is
+articulated in the VPS to make that work the likely basis of what Śaṅkara wishes to say in
+his commentary on a good many sūtras.
+
+Malkovsky (2001:123)
+```
+
+
+```
+So it is more likely that Śrīnivāsa is
+dealing with these statements and not referring to Śaṅkara; and rather that Śaṅkara
+is referring to Śrīnivāsa. This places Śrīnivāsa, and thereby Nimbārka, anterior to
+Śaṅkara.
+```
+
+```
+Śrīnivāsa is just as unaware of Śaṅkara’s
+position as Nimbārka is. Throughout the Vedāntakaustubha, Śrīnivāsa counters
+contemporary, and in his view, heterodox theories. If he had been later than
+Śaṅkara, there is absolutely no doubt that the advaita doctrine would have received
+similar criticism. Śrīnivāsa did elaborate upon his teacher’s doctrine as that was the
+raison d’être behind the Vedāntakaustubha, and similarities between his arguments
+and Śaṅkara’s can be explained simply as resulting from their reliance on the work
+of earlier Vedāntins.
+So, in terms of the Brahmasūtra commentaries, it can be shown that Śaṅkara is
+aware of Nimbārka and Śrīnivāsa, not the other way around. In summary, the
+reasons are as follows:
+	
+  
+159	
+  1. The multiple instances where Śaṅkara’s language is almost exactly the
+same as Nimbārka and Śrīnivāsa when presenting a specifically Nimbārkī
+bhedābheda theory.
+2. Śaṅkara incorporates very specific doctrines of Nimbārka’s bhedābheda
+into his pūrvapakṣa
+3. Śaṅkara includes quotations and illustrations offered by Nimbārka for
+bhedābheda in his pūrvapakṣa before strengthening it further and then
+subjecting it to criticism to establish his own doctrine of advaita.
+```
+
+#### Brahma sutras controversy
+There is also a convtreversy about the brahma sutras author and date. Our sampraday accepts the traditional concenses that Veda Vyas is Badri Narayan and is the author of the brahma sutras, the brahma sutras is an ancient sarced text and it is not created around 500 and 200 BCE or around 400 and 450 CE. 
+
+
+### Śaṅkara’s Tārkikas
+
+#### Bhavisya purana 
+
+Shri Keśava Kashmiri and the later authors of this tradition utilised the statement of the Bhaviṣyapurāṇa as an authoritative basis for their assumptions.
 
 ```
 sudarśano dvāparānte kṛṣṇājñapto janiṣyati | nimbāditya iti khyāto dharmaglānir hariṣyati ||
@@ -70,13 +136,30 @@ At the end of dvāpara yuga, Sudarśana will take birth, as commanded by Kṛṣ
 Known as Nimbāditya, he will remove dharma’s lassitude.
 ```
 
-The available versions of Bhavishya Purana are based on a printed text published during the British colonial era (1858 to 1947).
+#### Bhavisya purana contraversy
 
-In records of land grants of the 5th century CE, verses are quoted which occur only in the Padma, Bhavishya, and Brahma Puranas. This gives us more evidence that the current version of the Bhavisyapurana seems to be a very recent version.
+The Bhavishya Purana is one of the major 18 Puranas of the Vedic scriptures. Bhavishya means future events `bhaviysati`. The Bhavishya Purana is also mentioned in the ancient text of the Apastambha-dharma-sutras, so it is to be taken as an original Puranic literature dating from the time of Srila Vyasadeva.
 
-Therefor many scholars do not accept statements from the modern Bhavisya purana as evidence and the original version seems to be lost.
+The contriversy is that this Purana has been tampered with, but who tampered with it and why ? Stephen Knapp gives a good explanation here:
 
-Shri Keśava Kashmiri and the later authors of this tradition utilised the statement of the Bhaviṣyapurāṇa as an authoritative basis for their assumptions.
+```
+The Venkateswar Steam Press edition of the Bhavishya Purana printed in Bombay in 1829 (and reprinted by Nag Publishers in 2003) is probably the most complete version available, containing all the main features of the four manuscripts. Since none of the four editions of the Bhavishya Purana predate British Rule in India, this further suggests a discrepancy. The fact is that the British tried to monopolize the publishing of all Sanskrit literature during the British Raj. They bought or confiscated any Sanskrit literature they could locate. 
+
+...
+
+Considering the above anomalies and the fact that no edition of the Bhavishya Purana can be found prior to the British period in India, we can deduce that the Bhavishya Purana may have been tampered with by the Christian missionaries who added the chapter on Jesus. Their motive would be obvious -- to make the personality of Jesus acceptable to the Hindus in order to convert them to Christianity. This indeed was one of their tactics in regard to other texts as well. 
+```
+- Stephen Knapp
+
+```
+“As to the general extension [spreading] of our pure faith [Christianity] in Hindoostan [India] there are at present many sad obstacles to it... We may assure ourselves, that Hindoos will never be converted by any mission from the church of Rome, or from any other church; and the only human mode, perhaps, of causing so great a revolution, will be to translate into Sanscrit... such chapters of the Prophets, particularly of ISAIAH, as are indisputably evangelical, together with one of the gospels, and a plain prefatory discourse, containing full evidence of the very distant ages, in which the predictions themselves, and the history of the Divine Person (Jesus) is predicted, were severally made public and then quietly to disperse the work among the well-educated natives.” (Asiatic Researches Vol. 1. Published 1979, pages 234-235. First published 1788).
+```
+
+```
+Swami B.V. Giri concludes that it may also be noted that throughout the Pratisarga-parva of the Bhavishya Purana we find the stories of Adam and Eve (Adhama and Havyavati), Noah (Nyuha), Moses (Musa), and other Biblical characters. These he also considers to be likely additions by zealous Christians. The Bhavishya Purana may well be a genuine Vedic scripture prophesying future events, but from the above analysis we may want to reconsider how likely it is that the Jesus episode of the Bhavishya Purana is an authentic Vedic revelation. Take the evidence and decide for yourself.
+```
+
+I would like to point out that the Nimbark sampraday is consireded to be very traditional, and by no way promotes western civilazation or christianity nor has this lesser known sampraday, hidden sampraday had any connections with the British. So the tamperings that the British chrisitain missionaries made to date Shri Nimbark ji even earlier, will actually go against their very own understanding of history of trying to fit humanity including the Vedic civilation and liteature to be very recent.
 
 ```
 bhaviṣyapurāṇe śrīvyāsavacanāc chrīnimbārkācāryasyaiva bhagavac-chabdābhihitatvena
@@ -88,13 +171,25 @@ the [other Vedānta-]ācāryas…’
 - Bhagavadgītā Tattvaprakāśikā introduction, ch. 1. - Shri Kesheva Kashmiri
 ```
 
-As Shri Keshava is references an ancient version of the Bhavishya Purana. This adds validity that the information about Shri Nimbark Acharya in the Bhavisha purana is true, unfortuntly the exact date was not given by Shri Keshava Kashmiri.
+As Shri Keshava references Bhavishya Purana which predates the british rule and interpolations, this adds validity that the information about Shri Nimbark Acharya in the Bhavisha purana it true, unfortuntly the exact date was not given by Shri Keshava Kashmiri.
 
-The interpolations other than the date of birth for Shri Nimbark Acharya can serve no purpose to the sampraday, and these interpolations happened after the above quote. If the Bhavisya Purana of Shri Keshava Kashmiri accepted Shri Nimbark as the oldest Acharya, then what is the point to add extra years to make Shri Nimbark Acharya even older? Going through all that trouble for such a tiny change, for such little gain does not sound logical to me.
+The interpolations other than the date of birth for Shri Nimbark Acharya can serve very little purpose to the sampraday
 
-Also the sampraday has never used the date of Shri Nimbark Acharya as a preaching point. And it was only after Shri Keshava Kashmiri that the sampraday got riveved and widespread by Shri Harivyas Dev acharya. And there was no propoganda needed for a well known Siddha Babaji that has no contriversies and was accepted by all sampradays in Vrindavan. Infact the Nimbarkis especially during that time period where not big preachers, but rather spent their time relishing their spiritual pracises in reclusion.
+If Shri Keshava Kashmiri accepted Shri Nimbark as the most ancient of all acharyas due to evidence in the Bhavisya purana, then to go through all the trouble of adding a multitude of extra years to the Nimbark Acharya date of birth, does not seem worth the effort to me. Putting Shri Nimbark Acharya before a rival acharya or philosophy would make sense, but there are no acharays to put Him behind, therefor I cant see any substiantial gain from this.
 
-Without the statement of the Bhavisya Purana it is stil clear that Shri Nimbark Acharya is the oldest known Vedantist. Therefor the Nimbarki's holds that the history about Nimbark Acharyas life and datings in the Bhavisya Purana to be true as per the oral tradition.
+Also the sampraday has never used the date of Shri Nimbark Acharya as a preaching point. The Nimbarkis dont even care to defent themselves from all the multitude of varigated erroneous dates that has been ascribed to Shri Nimbark Acharya. As I said before they have a very humble manner of presenting themselvs and they dont have any quarrels with any sampradays or philosophies.
+
+It was after Shri Keshava Kashmiri that the sampraday got riveved and widespread by Shri Harivyas Dev acharya. He was a well known Siddha Babaji that was accepted by all sampradays in Vrindavan without any controversies, therefor no propoganda needed for the success of the sampraday during its golden years.
+
+Therefor, I cannot think of any good reasons that the Nimbarki's or the British needed to altered the DOB of Shri Nimbark Acharya.
+
+And even without the statement of the Bhavisya Purana, it is stil clear that Shri Nimbark Acharya is the oldest known Vedantist. The Bhavisya Purana just gives us the DOB and the history of Shri Nimbark Acharya.
+
+### Conclusion
+
+As mentioned earlier whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
+
+Though scholars have made a good attempt to try pin point a date of Shri Nimbark acharya I feel that there is more that needs to be uncovered to fully prove the DOB.
 
 -----
 <img src="images/nimbark/srinivas_acharya.jpg" width=20% height=20%>
@@ -175,7 +270,7 @@ Yogiraj Swami Ramdas Kathia Baba Maharaj, was a self-realised saint who personif
 
 In the opinion of many sadhus of his time including Shri Bijoy Krishna Goswami Babaji from Guadiya, Shri Kathia Babaji Maharaj was a sage on par with Sri Garga Muni and Sri Narada.
 
-That saint was the 54th Acharya of our community, Sri Sri 108 Swami Devdasji Kathia Babaji Maharaj. Sri Sri Devdasji Maharaj was a great man of Yogishwar Siddha. He was buried in Ekasan for six months and had nothing to eat even though he was not in the grave. After taking sannyasa, Kathia's father was named "Ramdas". From the time of Guru's presence, he was fully engaged in Guruseva. His guru started teaching him astanga yoga, all kinds of mantras and their application method with Hatha Yoga. Gurudev, however, did not make the mistake of testing the disciple from time to time. Sometimes he would starve, sometimes he would have a very tasty meal, sometimes he would test Sri Sri Ramdasji with inaudible abuse or beatings for no reason. Once Sri Sri Devdasji showed him a seat and asked him to sit there, instructing him, "You will sit here in this seat until I come back. Don't leave your seat and go anywhere else. " Gurudev came eight days later. Sri Ramdasji sat in that seat for eight consecutive days, did not eat anything, nor did he defecate. When Gurudev returned on the eighth day, Sri Ramdasji got up from his seat and prostrated himself before Gurudev. Seeing this devotion and determination towards obeying his guru, Gurudev was very pleased and said, "In this way one has to obey the guru's orders. God is pleased when the Guru's orders are obeyed wholeheartedly. "came to Vrindavan and made his first monastery there. He was succeeded by Swami Santadas Kathiababa
+That saint was the 55th Acharya of our community, Sri Sri 108 Swami Devdasji Kathia Babaji Maharaj. Sri Sri Devdasji Maharaj was a great man of Yogishwar Siddha. He was buried in Ekasan for six months and had nothing to eat even though he was not in the grave. After taking sannyasa, Kathia's father was named "Ramdas". From the time of Guru's presence, he was fully engaged in Guruseva. His guru started teaching him astanga yoga, all kinds of mantras and their application method with Hatha Yoga. Gurudev, however, did not make the mistake of testing the disciple from time to time. Sometimes he would starve, sometimes he would have a very tasty meal, sometimes he would test Sri Sri Ramdasji with inaudible abuse or beatings for no reason. Once Sri Sri Devdasji showed him a seat and asked him to sit there, instructing him, "You will sit here in this seat until I come back. Don't leave your seat and go anywhere else. " Gurudev came eight days later. Sri Ramdasji sat in that seat for eight consecutive days, did not eat anything, nor did he defecate. When Gurudev returned on the eighth day, Sri Ramdasji got up from his seat and prostrated himself before Gurudev. Seeing this devotion and determination towards obeying his guru, Gurudev was very pleased and said, "In this way one has to obey the guru's orders. God is pleased when the Guru's orders are obeyed wholeheartedly. "came to Vrindavan and made his first monastery there. He was succeeded by Swami Santadas Kathiababa
 
 
 -----
