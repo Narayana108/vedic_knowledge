@@ -15,8 +15,8 @@ Dvaitādvaita - Dualistic Oneness
 Tattva - principle, truth, reality
 
 So the translations would look like this:
-`Svābhāvika Bhedābheda` - `Natural simultatneous difference and non-difference` 
-`Svābhāvika Dvaitādvaita` - `Natural simultatious Dualistic Oneness`
+- `Svābhāvika Bhedābheda` - `Natural simultatneous difference and non-difference` 
+- `Svābhāvika Dvaitādvaita` - `Natural simultatious Dualistic Oneness`
 
 
 Bhedadheda tattva means that the jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
