@@ -1,6 +1,7 @@
 ## Nimbark Philosophy - Yugal Bhakti
 
-The Nimbark sampraday is a vaishnava sampraday which also follows the pancharatra system of worship and adheres to the vaishnava doctrine that the different forms of Radha Krishna, Sita Ram, Lakshmi Narayan, etc are supreme and that bhakti and surrunder to these deites are the foundation and most important aspects of yoga.
+Te Nimbark sampraday is a vaishnava sampraday which also follows the pancharatra system of worship and adheres to the vaishnava doctrine that the different forms of Radha Krishna, Sita Ram, Lakshmi Narayan, etc are supreme and that bhakti and surrunder to these deites are the foundation and most important aspects of yoga
+arst.
 
 The tradition follows the teachings of Shri Nimbark Acharya ji, other prominent acharyas within the sampraday like Shri Keshava Kashmiri Bhattacharyaji and Harivyas dev acharyaji and the philosophy of Shrimad Bhagavatam and other various other sacred texts. 
 
@@ -12,6 +13,7 @@ archyo bandyashcha dhyeyashcha shrinimbarkapadanugaih
 - Shri Nimbarka-Sudha
 
 For the followers of Shri Nimark Acharya they should only worship Shri Radha along with Madhava, Shri Shri Radha Rasik Bihari is the only deity which should be worshipped, which should be prayed to and upon which we should meditate. This is the only goal which is universally accepted by all. 
+
 ```
 
 Shri Nimbark Acharya held the view that there is no superiority between Radha and Krishna, both are God (Parabrahman). 
