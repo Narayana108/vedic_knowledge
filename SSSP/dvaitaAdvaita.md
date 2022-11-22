@@ -1,3 +1,4 @@
+*Please Check*
 ## Svābhāvika-Dvaitādvaita Tattva
 
 The Sutras of Maharishi Veda Vyasa form the basis of Vedanta and has a large body of sacred texts. These sutras describe different aspects of the Absolute and as a result various interpretations and schools of thought emerged, such as: Keval Advaita of Sri Sankaracharya, Visishta Advaita of Sri Ramanujacharya, Dvaita of Sri Madhavacharya, etc.

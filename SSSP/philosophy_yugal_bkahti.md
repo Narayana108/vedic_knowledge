@@ -1,3 +1,4 @@
+*Please check*
 ## Nimbark Philosophy - Yugal Bhakti
 
 The Nimbark sampraday is a vaishnava sampraday which also follows the pancharatra system of worship and adheres to the vaishnava doctrine that the different forms of Radha Krishna, Sita Ram, Lakshmi Narayan, etc are supreme and that bhakti and surrunder to these deites are the foundation and most important aspects of yoga.

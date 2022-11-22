@@ -1,3 +1,5 @@
+*Please Check*
+
 ## Moksha (Liberation) 
 
 The jiva(individual soul) is covered in beginingless ignorance and is trapped in the material world, suffering all kinds of meseries such as duality, birth, death, disease, old age, etc.
