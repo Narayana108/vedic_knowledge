@@ -2,7 +2,7 @@
 
 Many indologists have underlined the fact that history has not been kind to the Nimbārka Sampradāya. Nevertheless, the tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
 
-Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also especially in the early days, the esoteric knowledge of Shri Radha and the Yugal maha mantra was kept secret. This lead to the sampraday slowly diminishing and towards the 15th century it was almost lost, having a very small following only. But fortunately the sampraday was revived and widespread during the 15th and 16th century by Shri Harivyas Dev acharya and his 12 main disciples.
+Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also especially in the early days, the esoteric knowledge of Shri Radha and the Yugal maha mantra was kept secret. This lead to the sampraday slowly diminishing and towards the 15th century it was almost lost, having a very small following only. But fortunately the sampraday was revived and widespread during the 16th century by Shri Harivyas Dev acharya and his 12 main disciples.
 
 
 ## Acharya's
@@ -36,9 +36,11 @@ He was like a medicinal fruit (nimba) in curing people from the disease of the w
 - Mangala-pata, Tattva Prakashika (Shri Kesheva Kashmiri)
 ```
 
+Unlike other acharyas from the prominents sampradays who built many ashrams, had many great debates, met with many kings, Shri Nimbark acharya was a muni that lived mostly in isolation in the forest. That is also one of the reasons why the sampraday has always been a more hidden sampraday.
+
 Nimbark Acarya has written the following works and commentaries:
 ```
-- Vedānta Pārijāta Saurabha– Commentary on the Brahma Sutras
+- Vedānta Pārijāta Saurabha – Commentary on the Brahma Sutras
 - Sadācāra Prakāśa– Commentary on the Bhagavad-Gītā
 - Rahasya Ṣoḍaśī- Śrī Gopāla Mantra explained
 - Prapanna Kalpa Vallī- Śrī Mukuṇḍa Mantra explained
@@ -53,76 +55,36 @@ Nimbark Acarya has written the following works and commentaries:
 
 ### Shri Nimbarks date of birth contraversy 
 
-The latest research by Indological scholars (Ramnarace 2015, Malkovsky 2001, Agrawal 2000 and Satyanand 1997) has shown that it is likely that Śhrī Nimbārka lived sometime between **620-690ce**, though the Nimbārka Sampradāya maintains the Bhaviṣhya Purāṇa’s and the Ācāryacaritam of Nārāyaṇaśaraṇa Deva (r.1700-1754CE) statements that He incarnated on Kārtika Pūrṇimā 3096bce, six years after Bhagavān Śhrī Kṛiṣhṇa concluded His earthly pastimes. Whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
+The latest research by Indological scholars (Ramnarace 2015, Malkovsky 2001, Agrawal 2000 and Satyanand 1997) has shown that it is likely that Śhrī Nimbārka lived sometime between **620-690ce**, though the Nimbārka Sampradāya maintains the Bhaviṣhya Purāṇa’s and the Ācāryacaritam of Nārāyaṇaśaraṇa Deva (r.1700-1754CE) statements that He incarnated on Kārtika Pūrṇimā 3096bce, six years after Bhagavān Śhrī Kṛiṣhṇa concluded His earthly pastimes.
 
-Shri Nimbark ji, ofcourse, criticises like other schools of thought (V.P.S. 2.2), but he makes no attempt at criticising
-other schools of the Vedanta.
+Shri Nimbark ji, ofcourse, criticises like other schools of thought (V.P.S. 2.2), but he makes no attempt at criticising other schools of the Vedanta.
 
 There are many rival tenets that Shri Shankar Acharya ji countered belonged to Bhedābheda (also known by the synonym Dvaitādvaita), which scholars suggest is the oldest philosophical understanding of Vedānta, a fact to which pre-eighth century Buddhist writings attest.
 
+*A pre-Śaṁkara bhāṣya has, therefore, a two-fold characteristic. First of all, a pre-Śaṁkara bhāṣyakāra is unaware of the points that Śaṁkara raises against his doctrines. Secondly, a pre-Śaṁkara bhāṣyakāra is also unaware of the typical Śaṁkarite doctrines such as Brahmavivartavāda, Avidyāvāda, Pratibimbavāda etc. against which he is unable to raise any objections, since he is anterior to Śaṁkara. Among the extant vṛttis on the Brahmasūtras, the [Vedāntapārijāta-]Saurabha alone has this double characteristic.*
 
-*A pre-Śaṁkara bhāṣya has, therefore, a two-fold characteristic. First of all, a pre-Śaṁkara
-bhāṣyakāra is unaware of the points that Śaṁkara raises against his doctrines. Secondly, a
-pre-Śaṁkara bhāṣyakāra is also unaware of the typical Śaṁkarite doctrines such as
-Brahmavivartavāda, Avidyāvāda, Pratibimbavāda etc. against which he is unable to raise
-any objections, since he is anterior to Śaṁkara. Among the extant vṛttis on the
-Brahmasūtras, the [Vedāntapārijāta-]Saurabha alone has this double characteristic.*
+Because the brahmsutra refutes many ideologies including so called buddhist concepts, Shri Nimbark Acharya also eloborates on refuting these Buddhist concepts.
 
-Because the brahmsutra refutes many ideologies including so called buddhist ideals, one also here has to deep research to see if there is suffienct evidence to stronger prove the author and the time peroid it was written in. 
+Therefor many scholars put a date on Nimbark acharya and the Brahma sutras to be after the birth of the Buddha, because the Brahma sutras and Nimbarks Bhashya deals with Buddhist concepts, but this is not a very accurate way to pin point the dates of Nimbark acharya and the brahma sutras, as these Buddhist concepts existed before the Buddha and that these concepts may be much more ancient that we realise. Madhva Acharya go's as far to say that these concepts are eternal.
+
+There are two ancient branches of Buddhism in Bodh Gaya and Tibet that pre date the birth of Gautama Siddhartha Buddha according to the traditions by thousands of years. According to the Buddhist monks in Bodh Gaya, their lineage have existed for thousand of years and all the Buddhas including Gautama Buddha and the Buddhas before him come to Bodh Gaya to attain enlightenment.
 
 
-He explains the mention of different philosophies and their criticism in the Brahma Sutra as refutations of general ideas, which are eternal. And not specific schools of thought like Buddhism etc. So, there is no necessary to assign a later date.
-
-```
-Satyanand concedes that at times the Bhedābheda pūrvapakṣin who Śaṅkara attempts to
-contradict may in fact represent a broad tradition of Bhedābheda views rather than the
-position of a solitary thinker. In such cases it is impossible to conclude whether Śaṅkara is
-drawing exclusively, or at all, on the VPS. However, at times the language and arguments
-used by Śaṅkara to articulate the Bhedābheda position are sufficiently close to what is
-articulated in the VPS to make that work the likely basis of what Śaṅkara wishes to say in
-his commentary on a good many sūtras.
-
-Malkovsky (2001:123)
-```
+#### Shankara refutes Shri Nimbark Acharya
 
 
 ```
-So it is more likely that Śrīnivāsa is
-dealing with these statements and not referring to Śaṅkara; and rather that Śaṅkara
-is referring to Śrīnivāsa. This places Śrīnivāsa, and thereby Nimbārka, anterior to
-Śaṅkara.
-```
-
-```
-Śrīnivāsa is just as unaware of Śaṅkara’s
-position as Nimbārka is. Throughout the Vedāntakaustubha, Śrīnivāsa counters
-contemporary, and in his view, heterodox theories. If he had been later than
-Śaṅkara, there is absolutely no doubt that the advaita doctrine would have received
-similar criticism. Śrīnivāsa did elaborate upon his teacher’s doctrine as that was the
-raison d’être behind the Vedāntakaustubha, and similarities between his arguments
-and Śaṅkara’s can be explained simply as resulting from their reliance on the work
-of earlier Vedāntins.
-So, in terms of the Brahmasūtra commentaries, it can be shown that Śaṅkara is
-aware of Nimbārka and Śrīnivāsa, not the other way around. In summary, the
-reasons are as follows:
+Śrīnivāsa is just as unaware of Śaṅkara’s position as Nimbārka is. Throughout the Vedāntakaustubha, Śrīnivāsa counters contemporary, and in his view, heterodox theories. If he had been later than Śaṅkara, there is absolutely no doubt that the advaita doctrine would have received similar criticism. Śrīnivāsa did elaborate upon his teacher’s doctrine as that was the raison d’être behind the Vedāntakaustubha, and similarities between his arguments and Śaṅkara’s can be explained simply as resulting from their reliance on the work of earlier Vedāntins. So, in terms of the Brahmasūtra commentaries, it can be shown that Śaṅkara is aware of Nimbārka and Śrīnivāsa, not the other way around. In summary, the reasons are as follows:
 	
   
-159	
-  1. The multiple instances where Śaṅkara’s language is almost exactly the
-same as Nimbārka and Śrīnivāsa when presenting a specifically Nimbārkī
-bhedābheda theory.
-2. Śaṅkara incorporates very specific doctrines of Nimbārka’s bhedābheda
-into his pūrvapakṣa
-3. Śaṅkara includes quotations and illustrations offered by Nimbārka for
-bhedābheda in his pūrvapakṣa before strengthening it further and then
-subjecting it to criticism to establish his own doctrine of advaita.
+
+1. The multiple instances where Śaṅkara’s language is almost exactly the same as Nimbārka and Śrīnivāsa when presenting a specifically Nimbārkī bhedābheda theory.
+2. Śaṅkara incorporates very specific doctrines of Nimbārka’s bhedābheda into his pūrvapakṣa
+3. Śaṅkara includes quotations and illustrations offered by Nimbārka for bhedābheda in his pūrvapakṣa before strengthening it further and then subjecting it to criticism to establish his own doctrine of advaita.
+
+- Ramnarance (2015)
 ```
 
-#### Brahma sutras controversy
-There is also a convtreversy about the brahma sutras author and date. Our sampraday accepts the traditional concenses that Veda Vyas is Badri Narayan and is the author of the brahma sutras, the brahma sutras is an ancient sarced text and it is not created around 500 and 200 BCE or around 400 and 450 CE. 
-
-
-### Śaṅkara’s Tārkikas
 
 #### Bhavisya purana 
 
@@ -159,7 +121,7 @@ Considering the above anomalies and the fact that no edition of the Bhavishya Pu
 Swami B.V. Giri concludes that it may also be noted that throughout the Pratisarga-parva of the Bhavishya Purana we find the stories of Adam and Eve (Adhama and Havyavati), Noah (Nyuha), Moses (Musa), and other Biblical characters. These he also considers to be likely additions by zealous Christians. The Bhavishya Purana may well be a genuine Vedic scripture prophesying future events, but from the above analysis we may want to reconsider how likely it is that the Jesus episode of the Bhavishya Purana is an authentic Vedic revelation. Take the evidence and decide for yourself.
 ```
 
-I would like to point out that the Nimbark sampraday is consireded to be very traditional, and by no way promotes western civilazation or christianity nor has this lesser known sampraday, hidden sampraday had any connections with the British. So the tamperings that the British chrisitain missionaries made to date Shri Nimbark ji even earlier, will actually go against their very own understanding of history of trying to fit humanity including the Vedic civilation and liteature to be very recent.
+I would like to point out that the Nimbark sampraday is consireded to be very traditional, and by no way promotes western civilazation or christianity nor has this lesser known sampraday, had any connections with the British. To think that the tamperings that the British chrisitain missionaries also included the date Shri Nimbark ji by making placing him to an ancient time, will actually go against their very own understanding of western history of trying to fit humanity including the Vedic civilation all to be very recent and not an ancient civilazation.
 
 ```
 bhaviṣyapurāṇe śrīvyāsavacanāc chrīnimbārkācāryasyaiva bhagavac-chabdābhihitatvena
@@ -173,23 +135,19 @@ the [other Vedānta-]ācāryas…’
 
 As Shri Keshava references Bhavishya Purana which predates the british rule and interpolations, this adds validity that the information about Shri Nimbark Acharya in the Bhavisha purana it true, unfortuntly the exact date was not given by Shri Keshava Kashmiri.
 
-The interpolations other than the date of birth for Shri Nimbark Acharya can serve very little purpose to the sampraday
+The interpolations other than the date of birth for Shri Nimbark Acharya can serve very little purpose to the sampraday.
 
 If Shri Keshava Kashmiri accepted Shri Nimbark as the most ancient of all acharyas due to evidence in the Bhavisya purana, then to go through all the trouble of adding a multitude of extra years to the Nimbark Acharya date of birth, does not seem worth the effort to me. Putting Shri Nimbark Acharya before a rival acharya or philosophy would make sense, but there are no acharays to put Him behind, therefor I cant see any substiantial gain from this.
 
-Also the sampraday has never used the date of Shri Nimbark Acharya as a preaching point. The Nimbarkis dont even care to defent themselves from all the multitude of varigated erroneous dates that has been ascribed to Shri Nimbark Acharya. As I said before they have a very humble manner of presenting themselvs and they dont have any quarrels with any sampradays or philosophies.
-
-It was after Shri Keshava Kashmiri that the sampraday got riveved and widespread by Shri Harivyas Dev acharya. He was a well known Siddha Babaji that was accepted by all sampradays in Vrindavan without any controversies, therefor no propoganda needed for the success of the sampraday during its golden years.
+It was after Shri Keshava Kashmiri that the sampraday got riveved and widespread by Shri Harivyas Dev acharya. Shri Harivyas dev acharya was a well known Siddha Babaji that is accepted by all sampradays in Vrindavan without any controversies, therefor no propoganda needed for the success of the sampraday during its golden years.
 
 Therefor, I cannot think of any good reasons that the Nimbarki's or the British needed to altered the DOB of Shri Nimbark Acharya.
 
-And even without the statement of the Bhavisya Purana, it is stil clear that Shri Nimbark Acharya is the oldest known Vedantist. The Bhavisya Purana just gives us the DOB and the history of Shri Nimbark Acharya.
+And even without the statement of the Bhavisya Purana, it is stil clear that Shri Nimbark Acharya is the oldest known Vedantist. 
 
 ### Conclusion
 
-As mentioned earlier whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
-
-Though scholars have made a good attempt to try pin point a date of Shri Nimbark acharya I feel that there is more that needs to be uncovered to fully prove the DOB.
+Whether we accept the tradition’s dating or that of the scholars, it is still clear that Nimbārka’s School of Vedānta precedes all the currently extant schools.
 
 -----
 <img src="images/nimbark/srinivas_acharya.jpg" width=20% height=20%>
@@ -219,6 +177,7 @@ Shri KeshavKashmiri Bhattacharyaji Maharaj elaborated on the `Vedanta Koustubh B
 This acharya’s work named `Kramdipika` on Tantra is very famous. Maharaji also wrote a commentary on the Bhagavad Gita titled `Tattva Prakashika`. 
 
 He is also known for defeating the purpose of the YANTRA placed by Yavan Kaji at the Vishram Ghat in Mathura, by using his own Yantra, thus upholding the Hindu Culture and also the Vedic Vaishnava Sampradayas.
+
 
 <img src="images/nimbark/vishram_ghat.jpg" width=30% height=30%>
 

@@ -27,7 +27,6 @@ The Sampraday originates from Śrī Hansa Bhagavān to Shri Sankadi Bhagavān (T
 
 According to tradition, Narada Muni initiated Śrī Nimbārk ācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
 
-
 ## History
 
 Please see [History and Nimbark Acharyas](./history_and_nimbark_acharyas.md).
@@ -41,8 +40,7 @@ The Sutras of Maharishi Veda Vyasa form the basis of Vedanta and has a large bod
 
 Shri Nimbark Acharyaji established the siddhanta(philosophy) known as `Svabhavika Bhedabheda` `(Natural difference and non-difference)` or `Dvaitadvaita` `(Dualistic Non-Dualism)`.
 
-### svābhāvika-dvaitādvaita
-
+## Svābhāvika-Dvaitādvaita
 
 1. The totality of the śrutis propounding difference and non-difference are equally authoritative.
 
@@ -64,15 +62,22 @@ Shri Nimbark Acharyaji established the siddhanta(philosophy) known as `Svabhavik
 
 10. Due to being the pervader and pervadable, the foundation and its dependent, having its state and actions dependent on it, mutual interdependence and other causes, difference and non-difference exists in in a singular substratum without any contradiction.
 
-This philosophy has been able to reconcile all other schools of thought and the so called contradictory statements of the Vedas. Bhedadheda means that the jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
+This philosophy has been able to reconcile all other schools of thought and the so called contradictory statements of the Vedas. Bhedadheda means that the jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter). 
+
+This is really profound as this bhedaabedha philosophy of Shri Nimbark acharya does not favour advaita over dvaita or visa versa makeing it a true bheda abedha philosophy, both advaita(oneness) and dviata(dualism) are equally as important and true. 
 
 According to Shri Nimbark Acharya, the relation between Brahman and the jiva is like a tree and its branches. The branches have all qualities of the tree, but the branches are not the tree as a whole. Likewise jiva is anu (small) having all qualities like Brahman(bibhu-large), but with limited extent. Brahman resides in the heart of jiva, but jiva has no realization due to Maya (illusion). This is the basic idea of `Dvaitadvaita` siddhanta.
 
 While the material universe is not seen as the highest reality, it is also not seen as an illusion and is accepted as real. The jiva(individual soul) who is trapped in samsara or this lower dimention of reality which filled with all sorts of misseries needs to utilizie his/her conciousness in awakening his/her divine relation with Supreme Godhead in order to transcend this mundane reality.
 
-Here is a detailed explanation of `Dvaita Advaita`: [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
+More information on `Dvaita Advaita`: [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)
 
-The tradition follows the philosophy of Shrimad Bhagavatam and of Shri Nimbark Acharya ji, which state that the worship of Shri Vishnu and his forms is the highest form of worship, thus classifying the Nimbark sampraday as a Vaishnav sampraday. 
+## Philosophy - Radha Krishna Bhakti
+
+The Nimbark sampraday is a vaishnava sampraday which also follows the pancharatra system of worship and adheres to the vaishnava doctrine that the different forms of Radha Krishna, Sita Ram, Lakshmi Narayan, etc are supreme.  
+
+The tradition follows the teachings of Shri Nimbark Acharya ji, other prominent acharyas within the sampraday like Shri Keshava Kashmiri Bhattacharyaji and Harivyas dev acharyaji and the philosophy of Shrimad Bhagavatam and other various other sacred texts. 
+
 
 But Shri Nimbark Acharya specifically states:
 
@@ -86,8 +91,6 @@ For the followers of Shri Nimark Acharya they should only worship Shri Radha alo
 
 Shri Nimbark Acharya held the view that there is no superiority between Radha and Krishna, both are God (Parabrahman). 
 
-Even though Shri Nimbark Acharya ji was a vaishnava vedantist and incarnated with the purpose to spread the worship of Radha Krishna for the general masses, He has different moods and multiple spiritual identities other than being an avatar of Shri Sudarshan Chakra. His inner mood was that of sakhi bhava upasana, which is a very high level and esoteric form of worship which is not suitable for the general public, this style of worship has also been maintained through the parampara up until this very present day.
-
 ```
 Ange Tu Vame Vrishbhanujam Muda, Virajmanamnurup Saubhgaam
 Sakhisahastrai Parisevitam Sada, Samrem Devim Sakaleshtkam
@@ -96,6 +99,8 @@ Sakhisahastrai Parisevitam Sada, Samrem Devim Sakaleshtkam
 The left portion of the body of the Supreme Lord is Shri Radha, seated blissfully, as beautiful as the Lord Himself; who is served by thousands of sakhis. We meditate on the Supreme Goddess, the fulfiller of all desires.
 ```
 
+Even though Shri Nimbark Acharya ji was a vaishnava and vedantist, He has different moods and multiple spiritual identities other than being an avatar of Shri Sudarshan Chakra. His inner mood was that of sakhi bhava upasana, which is a very high level and esoteric form of worship which is not suitable for the general public, this style of worship has also been maintained through the parampara up until this very present day.
+
 ```
 radhaamkrsnasvaroopaam vai, krishnam raadhaasvarupinam; kalaatmaanam nikunjastham gururoopam sadaa bhaje
 - Maha vani
@@ -103,7 +108,7 @@ radhaamkrsnasvaroopaam vai, krishnam raadhaasvarupinam; kalaatmaanam nikunjastha
 I ceaselessly praise Radha who is none other than Krishna, and Shri Krishna who is none other than Radha, whose unity is represented by the Kaamabeeja and who are forever resident in Nikunja Goloka Vrndavana.
 ```
 
-A lot of this may sound familiar if one is already acquainted with Gaudiya Vaishnavism. As one can see there are many similarities between the Gaudiya's and Nimbarki's. They share identical and simalar concepts such as bhedabheda, importance of Srimad Bhagavatam, bhakti, naam jaap, tattva's, moksha and the worship of Radha and Krishna. Therefor a lot of knowledge is transferable between the sampradays. And of course there are differences as well, one example is that in the Nimbark leela as described in Mahavani, Radha and Krishna are married to each other and do not experience any major types of separation from each other. But the two sampradays have more things in common than in difference.
+A lot of this may sound familiar if one is already acquainted with Gaudiya Vaishnavism. As one can see there are many similarities between the Gaudiya's and Nimbarki's. They share identical and simalar concepts such as bhedabheda, importance of Srimad Bhagavatam, bhakti, naam jaap, tattva's, moksha and the worship of Radha and Krishna. Therefor a lot of knowledge is transferable between the sampradays. And of course there are differences as well, one example is that in the Nimbark Nitya Vrindavan leela as described in Mahavani, Radha and Krishna belong to each other only and have had a type of marriage ceremony to express this and their one pointed love and devotion to each other. They do not experience any major types of separation or obstacles to see each other. But the two sampradays have more things in common than in difference.
 
 
 ## Practice/Sadhana
@@ -126,7 +131,9 @@ This is again not an independent means to Salvation for all, as only those quali
 
 Devotion and self-surrender to God as Shri Radha Krsna. This method of attaining Salvation, known as Prapatti Sadhana, contains elements of all the other means, and is most importantly, available to all. Men, women, all classes and castes (or non-castes) are permitted to seek liberation through this, **the most important Sadhana**. It is referred to as Sadhana (or Apara) Bhakti – devotion through regulations. This in turn leads to Para Bhakti – the highest devotion characterised by Madhurya Rasa – the sweet emotions of devotion experienced by those perfected in Sadhana Bhakti.
 
-- **Naam Japa** the chanting the Holy Names is also extremely important.
+Prapatti is in no way inferior to the other methods, even though its available to all grades and types of people.
+
+- **Naam Jap** the chanting the Holy Names is also extremely important, and is the main sadhana in nimbark sampraday.
 
 Nimbark sampraday's maha mantra is called the `Yugal maha mantra` or `Radha Krishna maha mantra`: 
  
@@ -141,7 +148,7 @@ Shyām Shyām Rādhe Rādhe
 The most important factor in this Age of Kali, which is an ocean of faults, is that one can be free from all contamination and become eligible to enter the kingdom of God simply by chanting the holy names. The self-realization that was achieved in the Satya millennium by meditation, in the Treta millennium by the performance of different sacrifices, and in the Dvapara millennium by worship of Lord Krsna can be achieved in the Age of Kali simply by chanting the holy names. - Srimad Bhagavatam (12.3.51-2)
 ```
 
-The perfection of naam japa is roop dhyaan, This is an very advanced practise.
+The perfection of naam japa is roop dhyaan. This is a more advanced practise, which requires mercy and practise to be able to perform.
 
 5. Gurupasatti (devotion and self-surrender to God as Śrī Rādhā Kṛṣṇa)
 
@@ -156,9 +163,9 @@ Salvation is attained by real knowledge (Jnana) and true devotion (Bhakti). Real
 
 It is released from its previous state of bondage. It abides now in the glory of its own true Self which is Brahman Itself. It is in full awareness or consciousness of being one with the Lord. It will not return to the world. It is freed from the round of births and deaths.
 
-There are different types of liberation. Such as the jiva merging into brahman, where the jiva is in a nirguna(devoid of all characteristics and qualities) state situated in bliss.
+There are different types of liberation. Such as the jiva merging into brahman, where the jiva is in a nirguna(devoid of all characteristics and qualities) state situated in bliss or attaining an eternal spiritual body and residing in the eternal abode of vaikuntha.
 
-### What happens when one liberated ?
+### Vaishnava moksha (liberation)
 
 1. Attaining the qualities of Shri Krishna
 
@@ -177,13 +184,13 @@ One may attain liberation in this life or when one leaves ones physical body.
 One attains liberation or residency only by attaining prem (divine love) for Radha and Krishna. Attaining prem (love of God) is ultimately only possible through grace. Even though grace is causeless, the devotee has to make an effort from his side as well, its works both ways. The devotee has to do his utmost best to please his Guru and follow the instuctions given in the Vedic literature and peform his daily spiritual practises. 
 
 
-### Descriptions of Vrindavan
+### Descriptions of Nitya Vrindavan
 
 There is no such thing as illusion, old age, diseases, scarcity or envy in Vrindavan. Every single soul that resides there is a perfected being with the same nature and qualities as Shri Krishna Himself.
 
 Even though all events happen in a sequintial manner, time does not exist in this realm and one moment could be even billions of years. 
 
-Vrindavan dhams beauty and splendour is beyond words, everything including the inanimate objects is concious and luminous. When the gem studded golden path ways radiance blends with the reflection of the self luminous plants, it creates a holographic duplication of the plants, these holograms looks so real that the deers think they are real plants and try to eat them ! Any fruit tree can supply one with every single kind of fruit imaginable and these fruits are unlike the fruits in the material realm, they are always fresh, visually appealing, ripe, fragrant, delicious and have different kinds of flavours that we dont even know of ! There are enchanting fountains pouring out rare gems instead of water. In and around the palace where the Radha and Krishna live are peacocks, parrots, deers, flower gardens, groves, forests, the yamuna river and natural vedic architected ponds.
+Vrindavan dhams beauty and splendour is beyond words, everything including the inanimate objects are concious and luminous. When the gem studded golden path ways radiance blends with the reflection of the self luminous plants, it creates a holographic duplication of the plants, these holograms looks so real that the deers think they are real plants and try to eat them ! Any fruit tree can supply one with every single kind of fruit imaginable and these fruits are unlike the fruits in the material realm, they are always fresh, visually appealing, ripe, fragrant, delicious and have different kinds of flavours that we dont even know of ! There are enchanting fountains pouring out rare gems instead of water. In and around the palace where the Radha and Krishna live are peacocks, parrots, deers, flower gardens, groves, forests, the yamuna river and natural vedic architected ponds.
 
 In Vrindavan the only goal of life is to love, serve, play and live a life centered around pleasing the divine couple. All the activities performed and ever fresh and increase with bliss, nothing including bliss is ever exhausted or reaches a saturation point.
 
@@ -198,9 +205,13 @@ The two most promiment branches today connecting to Shri Harivyas Dev Acharya ar
 
 About 35 important temples located at Vrindavan, Ajmer, Kishangad, Indore, Sholapur, Nagpur, Amravati, Nagore and Moongi paitan among other places all over india are under the tutelage of the Shri Nimbark Acharya Peeth and follow the systems and traditions of the sampraday. It also have more than a dozen of non profit instutions which consists of schools, unviversities, hostels, goshalas, libraries, printing press, medical dispensary, etc.
 
-- `Svāmī Svabhūrāma Devācārya(36th)` - Which is connected to `Shri Indra Dasji Kathia Babaji Maharaj(50th)` the first Nimbarki in this line to receive the title `Kathia baba`
+- `Svāmī Svabhūrāma Devācārya(36th)` - Swamiji had the largest following of the following of the disciples of Shri Harivyas Dev Acharya.
 
-I would guess that there are more than 20 Kathia Baba temples in Vrindavan, Haridvar, Puri, Dvarka, Ashok Nagar, Guwahati, Tinsukia, Siliguri, Lona Chamiyari, Kolkatta, Madya Pradesh, Kashi, and other areas in north India. And they also have additional charity instututions such as healthcare, libraries, schools, etc.
+- Kathia Baba
+
+The Kathia baba's parampara is connected to Svāmī Svabhūrāma Devācārya Maharaji. `Shri Indra Dasji Kathia Babaji Maharaj(50th)` the first Nimbarki in this line to receive the title `Kathia baba`
+
+I would guess that there are more than 20 or 30 Baba temples in Vrindavan, Haridvar, Puri, Dvarka, Ashok Nagar, Guwahati, Tinsukia, Siliguri, Lona Chamiyari, Kolkatta, Madya Pradesh, Kashi, and other areas in north India. And they also have additional charity instututions such as healthcare, libraries, schools, etc.
 
 - Other branches - They have numerous amounts of temples including large ones in different areas of North India and charity institutions.
 
@@ -227,14 +238,14 @@ The tilak of the Nimbark sampraday can mean two or more things:
 2. The yelow outline represents Shriji's(Radha's) charan(Lotus feet) and the black bindi between the eye brows represents Krishna.
 
 ## Sannyasi or Babaji
-The renunciates in Nimbark sampraday are known as babaji's. They do not wear saffron, they mostly wear a white dhoti with no pleat and white shaul, sometimes yellow may also where yellow colored cloth.
+The renunciates in Nimbark sampraday are known as babaji's. They do not wear saffron, they mostly wear a white dhoti with no pleat and white shaul, sometimes they also where yellow colored cloth.
 
 ## Scripture's
 The main scriptures that are focused on by general devotees and sadhus are: `Bhagavad Gita`, `Shrimad Bhagavatam` and `Bhakta Maal`. 
 
 And the rasiks recite and focus on Radha Krishnas confidential Lila books: `Yugal Satak` and `Maha Vani`.
 
-The scholars study all the main upanishads, vedas, puranas, ithiasas, etc and Nimbarki bhayas and other works that are available..
+The scholars study all the main upanishads, vedas, puranas, ithiasas, etc and Nimbarki bhasya's and other Nimbarki works that are available.
 
 ## Online Resources:
 - [The life and teachings of Shri Nimbarka Acharya](https://www.hinduismtoday.com/educational-resources/the-life-teachings-of-one-of-indias-great-luminaries-shri-nimbarka/)
