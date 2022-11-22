@@ -14,7 +14,7 @@ There are different types of liberation. Such as the jiva merging into brahman, 
 
  The jiva(individual soul) posses the qualities of Bhagavaan, but never has the power over creation, preservation and dissolution of the world. The Jiva is also subject to being overpowerd by maya if it has not attained knowledge of Para Brahman. The difference between jiva and Bhagavaan(God) is not in kind, but in degree.
 
-2. Residency in Vrindavan Dham
+2. Residency in Nitya Vrindavan Dham (Etertnal spiritual abode of Radha Krishna)
 
 The type of liberation that is focused on within the Nimbark sampraday is to attain residency in the eternal spiritual realm called Vrindavan. 
 
@@ -24,4 +24,15 @@ One may attain liberation in this life or when one leaves ones physical body.
 
 ### How to attain Moksha (Liberation)
 
-One attains liberation or residency only by attaining prem (divine love) for Radha and Krishna. Attaining prem (love of God) is ultimately only possible through grace. Even though grace is causeless, the devotee has to make an effort from his side as well, its works both ways. The devotee has to do his utmost best to please his Guru and follow the instuctions given in the Vedic literature and peform his daily spiritual practises. 
+One attains liberation or residency only by attaining prem (divine love) for Radha and Krishna. Attaining prem (love of God) is ultimately only possible through grace. Even though grace is causeless, the devotee have to make an effort,as it works both ways. The devotee has to do his utmost best to please his Guru and follow the instuctions given in the Vedic literature and peform his daily spiritual practises. 
+
+
+### Descriptions of Nitya Vrindavan
+
+There is no such thing as illusion, old age, diseases, scarcity or envy in Vrindavan. Every single soul that resides there is a perfected being with the same nature and qualities as Shri Krishna Himself.
+
+Even though all events happen in a sequintial manner, time does not exist in this realm and one moment could even be billions of years. 
+
+Vrindavan dhams beauty and splendour is beyond words and material conceptions, everything including the inanimate objects are concious and luminous. When the gem studded golden path ways radiance blends with the reflection of the self luminous plants, it creates a holographic duplication of the plants, these holograms looks so real that the deers think they are real plants and try to eat them ! Any fruit tree can supply one with every single kind of fruit imaginable and these fruits are unlike the fruits in the material realm, they are always fresh, visually appealing, ripe, fragrant, delicious and have different kinds of flavours that we dont even know of! There are enchanting fountains pouring out rare gems instead of water. In and around the palace where Shri Radha and Krishna live, there are peacocks, parrots, deers, flower gardens, groves, forests, the yamuna river and natural vedic architected ponds.
+
+In Vrindavan the only goal of life is to love, serve, play and live a life centered around pleasing the divine couple. All the activities performed and ever fresh and increase with bliss, nothing including bliss is ever exhausted or reaches a saturation point.

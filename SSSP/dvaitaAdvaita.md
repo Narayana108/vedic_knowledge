@@ -1,10 +1,29 @@
 ## Svābhāvika-Dvaitādvaita Tattva
 
-The Sutras of Maharishi Veda Vyasa form the basis of Vedanta and has a large body of sacred texts. These sutras describe different aspects of the Absolute and as a result various interpretations and schools of thought emerged, such as: Keval Advaita of Sri Sankaracharya, Visishta Advaita of Sri Ramanujacharya, Dvaita of Sri Madhavacharya, etc.  
+The Sutras of Maharishi Veda Vyasa form the basis of Vedanta and has a large body of sacred texts. These sutras describe different aspects of the Absolute and as a result various interpretations and schools of thought emerged, such as: Keval Advaita of Sri Sankaracharya, Visishta Advaita of Sri Ramanujacharya, Dvaita of Sri Madhavacharya, etc.
 
-Shri Nimbark Acharyaji established the siddhanta(philosophy) known as `Svabhavika Bhedabheda` `(Natural difference and non-difference)` or `Dvaitadvaita` `(Dualistic Non-Dualism)`.
+The Bhedābheda (also known by the synonym Dvaitādvaita) school of thought, which scholars suggest is the oldest philosophical understanding of Vedānta, a fact to which pre-eighth century Buddhist writings attest.
 
-Here is the quientessence of svābhāvika-dvaitādvaita tattva:
+There are so many different bheda abheda philosophies founded and propounded by many different acharays like Bhāskara acharya who established the Aupādhika Bhedābheda siddhanta(philosophy) and Shri Chaitanya Mahaprabhu who the propogated Achintya Bheda Abheda siddhanta(philosophy).
+
+Shri Nimbark Acharyaji established the svābhāvika-dvaitādvaita siddhanta(philosophy) of Bheda Abheda. 
+
+Sanskrit word meanings:
+Svābhāvika -  Natural
+Bhedābheda - Difference and non-difference
+Dvaitādvaita - Dualistic Oneness
+Tattva - principle, truth, reality
+
+So the translations would look like this:
+`Svābhāvika Bhedābheda` - `Natural simultatneous difference and non-difference` 
+`Svābhāvika Dvaitādvaita` - `Natural simultatious Dualistic Oneness`
+
+
+Bhedadheda tattva means that the jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
+
+This philosophy is exermely profound as it has been able to reconcile all other schools of thought and the so called contradictory statements of the Vedas. 
+
+Here is the essence of svābhāvika-dvaitādvaita tattva:
 
 1. The totality of the śrutis propounding difference and non-difference are equally authoritative.
 
@@ -16,7 +35,7 @@ Here is the quientessence of svābhāvika-dvaitādvaita tattva:
 
 5. The individual soul is eternal, a portion and transformation of Brahman, and immutable.
 
-6. The universe beginningless.
+6. The universe beginningless and real.
 
 7. Liberation is attaining a similar state as Brahman.
 
@@ -26,10 +45,6 @@ Here is the quientessence of svābhāvika-dvaitādvaita tattva:
 
 10. Due to being the pervader and pervadable, the foundation and its dependent, having its state and actions dependent on it, mutual interdependence and other causes, difference and non-difference exists in in a singular substratum without any contradiction.
 
-This philosophy has been able to reconcile all other schools of thought and the so called contradictory statements of the Vedas. Bhedadheda means that the jiva(individual soul) is simultaneously one and different to Brahman(Supreme soul) and to jagat/prakriti (material universe/matter).
-
 According to Shri Nimbark Acharya, the relation between Brahman and the jiva is like a tree and its branches. The branches have all qualities of the tree, but the branches are not the tree as a whole. Likewise jiva is anu (small) having all qualities like Brahman(bibhu-large), but with limited extent. Brahman resides in the heart of jiva, but jiva has no realization due to Maya (illusion). This is the basic idea of `Dvaitadvaita` siddhanta.
-
-While the material universe is not seen as the highest reality, it is also not seen as an illusion and is accepted as real. The jiva(individual soul) who is trapped in samsara or this lower dimention of reality which filled with all sorts of misseries needs to utilizie his/her conciousness in awakening his/her divine relation with Supreme Godhead in order to transcend this mundane reality.
 
 More information on `Dvaita Advaita`: [Nimbark philosophy](http://shrijagatgurunimbarkacharyapeeth.org/index_files/philosophy.htm)

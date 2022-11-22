@@ -1,9 +1,8 @@
-## Philosophy - Radha Krishna Bhakti
+## Nimbark Philosophy - Yugal Bhakti
 
-The Nimbark sampraday is a vaishnava sampraday which also follows the pancharatra system of worship and adheres to the vaishnava doctrine that the different forms of Radha Krishna, Sita Ram, Lakshmi Narayan, etc are supreme.  
+The Nimbark sampraday is a vaishnava sampraday which also follows the pancharatra system of worship and adheres to the vaishnava doctrine that the different forms of Radha Krishna, Sita Ram, Lakshmi Narayan, etc are supreme and that bhakti and surrunder to these deites are the foundation and most important aspects of yoga.
 
 The tradition follows the teachings of Shri Nimbark Acharya ji, other prominent acharyas within the sampraday like Shri Keshava Kashmiri Bhattacharyaji and Harivyas dev acharyaji and the philosophy of Shrimad Bhagavatam and other various other sacred texts. 
-
 
 But Shri Nimbark Acharya specifically states:
 
@@ -37,16 +36,16 @@ I ceaselessly praise Radha who is none other than Krishna, and Shri Krishna who 
 ## Tilak
 The tilak of the Nimbark sampraday can mean two or more things:
 
-1. The yellow line represents a mandir, and the bindi represents the murti of Shri Shri Radha Krishna or the yog pit, a mandala where Radha Krishna and the Sahecharis live. 
+1. The yellow line represents a mandir, and the bindi represents the murti of Yugal Sarkar (Radha Krishna) or the yog pit (a mandala where Radha Krishna and the Sahecharis live). 
 
 2. The yelow outline represents Shriji's(Radha's) charan(Lotus feet) and the black bindi between the eye brows represents Krishna.
 
 ## Sannyasi or Babaji
-The renunciates in Nimbark sampraday are known as babaji's. They do not wear saffron, they mostly wear a white dhoti with no pleat and white shaul, sometimes they also where yellow colored cloth.
+The renunciates in Nimbark sampraday are known as babaji's. They do not wear saffron, they mainly wear a white dhoti with no pleat and white shaul and sometimes they also wear yellow colored cloth.
 
 ## Scripture's
 The main scriptures that are focused on by general devotees and sadhus are: `Bhagavad Gita`, `Shrimad Bhagavatam` and `Bhakta Maal`. 
 
-And the rasiks recite and focus on Radha Krishnas confidential Lila books: `Yugal Satak` and `Maha Vani`.
+And the rasiks recite and focus on Yugal Kishor's(Radha Krishnas) confidential Lila books: `Yugal Satak` and `Maha Vani`.
 
 The scholars study all the main upanishads, vedas, puranas, ithiasas, etc and Nimbarki bhasya's and other Nimbarki works that are available.

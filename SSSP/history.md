@@ -1,7 +1,5 @@
 ## Origin
 
-<img src="images/nimbark/Nimbarka-7-.jpg" width=80% height=80%>
-
 The Sampraday originates from Śrī Hansa Bhagavān to Shri Sankadi Bhagavān (The Four Kumaras), who passed it to their younger brother Shri Narada Muni; and then on to Shri Nimbarka Acharya ji. 
 
 According to tradition, Narada Muni initiated Śrī Nimbārk ācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
