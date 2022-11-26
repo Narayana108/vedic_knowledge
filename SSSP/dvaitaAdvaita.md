@@ -1,6 +1,6 @@
 ## Svābhāvika-Dvaitādvaita Tattva
 
-The Brahma Sūtras composed by Rishi Veda-vyāsaḥ(Bādarāyaṇa) constitute the central Text of Vedanta Philosophy. The Vedanta doctrines enshrined in Vedas, Upanisads, Gita, Pancharatra and Itihasa Purana are critically summarized in Brahma sutras. These Sutras enable us to get the knowledge that arises by a critical study of the entire Vedic Literature and therefore are designated as Vedanta Sutras. This indicates that the area of the source literature of Vedanta is not confined to Upanishads only but extends to the entire Veda and the allied literature.
+The Brahma Sūtras composed by Rishi Veda-vyāsaḥ(Bādarāyaṇa) constitute the central Text of Vedanta Philosophy. The Vedanta doctrines enshrined in Vedas, Upanisads, Gita, Pancharatra and Itihasa Purana are critically summarized in Brahma Sutras. These sutras enable us to get the knowledge that arises by a critical study of the entire Vedic Literature and therefore are designated as Vedānta Sūtras This indicates that the area of the source literature of Vedanta is not confined to Upanishads only but extends to the entire Veda and the allied literature.
 
 These sutras describe different aspects of the Absolute and as a result various interpretations and schools of thought emerged, such as: Keval Advaita of Sri Sankaracharya, Visishta Advaita of Sri Ramanujacharya, Dvaita of Sri Madhavacharya, etc.
 
