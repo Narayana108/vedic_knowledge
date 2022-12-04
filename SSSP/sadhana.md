@@ -7,7 +7,7 @@ Performed conscientiously in a proper spirit, with one's varna and asrama (phase
 
 2. Vidyā (knowledge)
 
-Not as a subordinate factor of karma, but also not as an independent means for everyone; it may be an independant means only for those inclined to spending vast lengths of time in scriptural study and reflection on deeper meanings.
+Not as a subordinate factor of karma, but also not as an independent means for everyone; it may be an independent means only for those inclined to spending vast lengths of time in scriptural study and reflection on deeper meanings.
 
 3. Upāsanā or Dhyāna (meditation)
 
@@ -17,9 +17,9 @@ This is again not an independent means to Salvation for all, but can be to those
 
 4. Prapatti (surrender to the Lord/devotion)
 
-Devotion and self-surrender to God as Shri Radha Krsna. This method of attaining Salvation, known as Prapatti Sadhana, contains elements of all the other means, and is most importantly, available to all. Men, women, all classes and castes (or non-castes) are permitted to seek liberation through this, **the most important Sadhana**. It is referred to as Sadhana (or Apara) Bhakti – devotion through regulations. This in turn leads to Para Bhakti – the highest devotion characterised by Madhurya Rasa – the sweet emotions of devotion experienced by those perfected in Sadhana Bhakti.
+Devotion and self-surrender to God as Shri Radha Krsna. This method of attaining Salvation, known as Prapatti Sadhana, contains elements of all the other means, and is most importantly, available to all. Men, women, all classes and castes (or non-castes) are permitted to seek liberation through this, **the most important Sadhana**. It is referred to as Sadhana (or Apara) Bhakti – devotion through regulations. This in turn leads to Para Bhakti – the highest devotion characterized by Madhurya Rasa – the sweet emotions of devotion experienced by those perfected in Sadhana Bhakti.
 
-Prapatti is in no way inferior to the other methods, even though its available to all grades and types of people.
+Prapatti is in no way inferior to the other methods, even though it's available to all grades and types of people.
 
 Within Prapatti **Naam Jap** the chanting of Radha Krishna's names is required, and is the main sadhana.
 
@@ -40,4 +40,4 @@ The perfection of naam japa is roop dhyaan. This is a more advanced practise, wh
 
 5. Gurupasatti (devotion and self-surrender to God as Śrī Rādhā Kṛṣṇa)
 
-Devotion and self-surrender to guru. Best realised as a part in Prapatti, and not as an independent means, although it can be so.
+Devotion and self-surrender to guru. Best realized as a part in Prapatti, and not as an independent means, although it can be so.
