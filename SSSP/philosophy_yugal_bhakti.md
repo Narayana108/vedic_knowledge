@@ -49,4 +49,4 @@ Those that accept the renounced order of life in Nimbark sampraday receive the t
 The main scriptures that are focused on by general devotees are: `Bhagavad Gita`, `Shrimad Bhagavatam` and `Bhakta Maal`. 
 And the rasiks recite and focus on Yugal Kishor's(Radha Krishna's) confidential Lila books: `Yugal Satak` and `Maha Vani`.
 
-The scholars study all the main upanishads, vedas, puranas, itihasas and Nimbarki bhasyas and other Nimbarki works that are available.
+The scholars study all the main Upanishads, Vedas, Puranas, Itihasas, Pancharatra Agamas, Pancharatra and Nimbarki bhasyas and other Nimbarki works that are available.

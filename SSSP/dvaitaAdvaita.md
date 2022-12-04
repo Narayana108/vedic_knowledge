@@ -12,10 +12,10 @@ Shri Nimbark Acharyaji established the svābhāvika-dvaitādvaita siddhanta(phil
 
 Sanskrit word meanings:
 
-- Svābhāvika -  Natural.
+- Svābhāvika - Natural.
 - Bhedābheda - Difference and non-difference.
 - Dvaitādvaita - Dualistic Oneness.
-- Tattva - principle, truth, reality.
+- Tattva - Principle, truth, reality.
 
 The translations are as follows:
 - Svābhāvika Bhedābheda - `Natural simultatneous difference and non-difference` 
