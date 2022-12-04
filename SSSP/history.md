@@ -6,7 +6,7 @@ According to tradition, Narada Muni initiated Śrī Nimbārk ācārya into the s
 
 ## History
 
-The Nimbark sampraday is an ancient, mystical, lofty and deep sampraday, but most of its history starts with Shri Keshava Kashmiri Bhatta acharya and Sri Harivyas Dev acharya, as beyond these 2 acharyas, the lineage is too ancient to trace back.
+The Nimbark sampraday is an ancient, mystical, lofty and deep sampraday, but most of its history starts from Shri Keshava Kashmiri Bhatta acharya and onwards as the lineage is too ancient to trace back.
 
 The tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
 

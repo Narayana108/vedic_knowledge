@@ -1,4 +1,4 @@
-## Yugal Bhakti Loving devotion towards Radha Krishna
+## Yugal Bhakti - Loving devotion towards Shri Radha Krishna
 
 The Nimbark sampraday is a Vaishnava sampraday which also follows the pancharatra system of worship and adheres to the Vaishnava doctrine that the different forms of Radha Krishna, Sita Ram, Lakshmi Narayan, etc are supreme and that bhakti and surrender to these deities are the foundation and most important aspects of yoga.
 
@@ -42,11 +42,11 @@ The tilak of the Nimbark sampraday can mean two or more things:
 
 2. The yellow outline represents Shriji's(Radha's) charan(Lotus feet) and the black bindi between the eyebrows represents Krishna.
 
-## Babaji vesh (Sannyasi, monkhood)
+## Babaji vesh (Sannyasi/monkhood)
 Those that accept the renounced order of life in Nimbark sampraday receive the title `babaji`. Babaji is another form sannyasi(monkhood). The dress of a babaji is white cloth (dhoti with no pleat and a shawl).
 
 ## Scriptures
-The main scriptures that are focused on by general devotees and sadhus are: `Bhagavad Gita`, `Shrimad Bhagavatam` and `Bhakta Maal`. 
+The main scriptures that are focused on by general devotees are: `Bhagavad Gita`, `Shrimad Bhagavatam` and `Bhakta Maal`. 
 And the rasiks recite and focus on Yugal Kishor's(Radha Krishna's) confidential Lila books: `Yugal Satak` and `Maha Vani`.
 
 The scholars study all the main upanishads, vedas, puranas, itihasas and Nimbarki bhasyas and other Nimbarki works that are available.
