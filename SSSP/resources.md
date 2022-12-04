@@ -8,6 +8,7 @@
 - [Nimbark sampraday](https://nimbarka.wordpress.com/shri-nimbarka-sampradaya/)
 
 - [An introduction to Nimbark sampraday](https://hi-in.facebook.com/TheGloriousBangioNimbarSamprodoyAshram/posts/shri-radhejai-jagat-guru-shri-nimbarka-achraya-juthe-universal-tradition-of-the-/2460105870717820/)
+ 
 - [Nimbark sampraday - divine life soceity](https://www.dlshq.org/saints/nimbarka/)
 
 - [Nimbark Wiki](https://vedanta.redzambala.com/traditions/nimbarka-sampradaya-nimbarka.html)
@@ -21,4 +22,4 @@
 ## Books and papers
 - [Nimbark Parijata Saurbha Vol III - Roma Bose](https://archive.org/details/in.ernet.dli.2015.188129)
 
-- [Rādhā-Kṛṣṇa’s Vedāntic Debut - Vijay Ramrance - 2015](https://era.ed.ac.uk/bitstream/handle/1842/26018/Ramnarace2015.pdf)
+- [Rādhā-Kṛṣṇa’s Vedāntic Debut - Vijay Ramnarace - 2015](https://era.ed.ac.uk/bitstream/handle/1842/26018/Ramnarace2015.pdf)
