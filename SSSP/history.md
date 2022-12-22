@@ -1,16 +1,16 @@
 ## Origin
 
-The Sampraday originates from Śrī Hansa Bhagavān to Shri Sankadi Bhagavān (The Four Kumaras), who passed it to their younger brother Shri Narada Muni; and then on to Shri Nimbarka Acharya ji. 
+The sampradāya originates from Śrī Hansa Bhagavān to the Śrī Sanaka-dika Rishi's (The Four Kumaras), who passed it on to their younger brother Śrī Narada Muni; and then on to Śrī Nimbarka ācārya ji.
 
-According to tradition, Narada Muni initiated Śrī Nimbārk ācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of the Yugala upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa. 
+According to tradition, Narada Muni initiated Śrī Nimbārka ācārya into the sacred 18-syllabled Śrī Gopāla Mantra, and introduced him to the philosophy of Yugala-upāsana, the devotional worship of the divine couple Śrī Rādhā Kṛṣṇa.
 
 ## History
 
-The Nimbark sampraday is an ancient, mystical, lofty and deep sampraday, but most of its history starts from Shri Keshava Kashmiri Bhatta acharya and onwards as the lineage is too ancient to trace back.
+The Nimbark sampraday is an ancient, mystical, lofty and deep sampraday. Most of its history starts from Shri Keshava Kashmiri Bhatta acharya and onwards as the lineage has lost a good amount of its history due to islamic invasions and due to time, as this is a very ancient tradition.
 
 The tradition has contributed great luminaries to the heritage of Bhārata. Śhrī Jayadeva Kavi (author of the famous Śhrī Gīta Govinda), members of the royal dynasties of Amer, Jaipur, Jodhpur, Merta, Udaipur, Bikaner, Kishangarh, Rupangarh, Bharatpur, Budhiya (Haryana) and others from the 16th century until Indian independence, the great Hindi poets Ghanānanda, Sundar Kuṃvarī, Bāṅkāvatī, Nāgarī Dās, etc., were all followers of monks of the Nimbārka Sampradāya. Nāgarī Dās, the spiritual name of Maharāja Sāvant Singh (born 1699), was the founding patron of the Kishangarh style of painting. Many hundreds of poems he composed after renouncing, dedicated to the Supreme Lord, are sung not only by Nimbārkīs, but also by followers of the Puṣhṭimārga (Śhrī Vallabhāchārya’s sampradāya). These are a small sample of those who credit their talents to the blessings of the Supreme Lord and the gurus of the Nimbārka Sampradāya.
 
-Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also, especially in the early days, the esoteric knowledge of Shri Radha and the Yugal maha mantra was kept secret. This lead to the sampraday slowly diminishing and towards the 15th century it was almost lost, having a very small following only. But fortunately the sampraday was revived and widespread during the 16th century by Shri Harivyas Dev acharya and his 12 main disciples.
+Nimbārkī monks prefer to worship the Lord in seclusion. They typify the true paramahaṁsa, which is why the tradition is also known as the Paramahaṁsa Sampradāya, the lineage of the supremely renounced. Also,in the early days, the esoteric knowledge of Shri Radha and the Yugal maha mantra was kept secret. This lead to the sampraday slowly diminishing and towards the 15th century it was almost lost, having a very small following only. But fortunately the sampraday was revived and widespread during the 16th century by Shri Harivyas Dev acharya and his 12 main disciples.
 
 ## Branches of Shri Nimbark sampraday
 
@@ -29,4 +29,4 @@ The Kathia baba's used to practise in seclusion in the Himalayas, but the first 
 
 ### Institution  
 
-The Nimbark sampraday operates in a decentralized manner and the temple(s) is run according to the standard and style of the present Mahant. Even though the temple(s) under a certain Mahant are independent, the Nimbark sampraday is still united within this decentralization.
+The Nimbark sampraday operates in a decentralized manner and the temple(s) is run according to the standard and style of the present Mahant(Temple Guru). Even though the temple(s) under a certain Mahant are independent, the Nimbark sampraday is still united within this independent management style.

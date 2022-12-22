@@ -15,7 +15,7 @@ It is not known since when “MAYA” has been after Jeev. The conjunction with 
 
 a) Baddha_ one who is totally immersed in this world of Maya
 b) Baddha Mukta – One who has obtained liberation by Bhakti
-c) Nitya Mukta – One who has been ever liberated, never coming under the influence of  Maya
+c) Nitya Mukta – One who has been ever liberated, never coming under the influence of Maya
 
 
 3. apakritam prakrit roopakancha, kala svaroopam tadchetanam matam
